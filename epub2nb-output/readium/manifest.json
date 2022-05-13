@@ -1,0 +1,262 @@
+{
+  "@context": "https://readium.org/webpub-manifest/context.jsonld",
+  "metadata": {
+    "@type": "http://schema.org/Book",
+    "title": "Z deníku kontrarevolucionáře",
+    "identifier": "urn:uuid:296c0919-9963-415a-a386-6c26c077b931",
+    "author": "Pavel Kohout",
+    "publisher": "Městská knihovna v Praze",
+    "language": "cs-CZ",
+    "modified": "2020-05-13T00:00:00.000Z",
+    "published": "2020-05-07T00:00:00.000Z",
+    "subject": "subject",
+    "generator": "Adobe InDesign",
+    "Sigil version": "1.2.0"
+  },
+  "readingOrder": [
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_001.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_002.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_003.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_004.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_005.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_006.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_008.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_009.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_010.xhtml"
+    }
+  ],
+  "resources": [
+    {
+      "type": "application/x-dtbncx+xml",
+      "href": "OEBPS/toc.ncx"
+    },
+    {
+      "type": "text/css",
+      "href": "OEBPS/Styles/z_deniku_k_idstyles.css"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/image001_fmt.jpeg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/image002_fmt.jpeg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obalka_z_deniku_kontra_fmt.jpeg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/upoutavka_eknihy_fmt.jpeg"
+    }
+  ],
+  "toc": [
+    {
+      "title": "Středa 21. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-1"
+    },
+    {
+      "title": "14. II. 1945 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-2"
+    },
+    {
+      "title": "7. ledna 1968 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-3"
+    },
+    {
+      "title": "Středa 21. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-4"
+    },
+    {
+      "title": "26. II. 1945 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-5"
+    },
+    {
+      "title": "21. ledna 1968 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-6"
+    },
+    {
+      "title": "5. V. 1945 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-7"
+    },
+    {
+      "title": "Středa 21. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-8"
+    },
+    {
+      "title": "16. V. 1945 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-9"
+    },
+    {
+      "title": "Středa 21. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-10"
+    },
+    {
+      "title": "29. února 1968 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-11"
+    },
+    {
+      "title": "26. V. 1946 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-12"
+    },
+    {
+      "title": "Středa–čtvrtek 21.–22. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-13"
+    },
+    {
+      "title": "13.–22. března 1968 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-14"
+    },
+    {
+      "title": "26. II. 1948 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-15"
+    },
+    {
+      "title": "Čtvrtek 22. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-16"
+    },
+    {
+      "title": "5. X. 1949 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-17"
+    },
+    {
+      "title": "24. dubna 1968 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-18"
+    },
+    {
+      "title": "1. V. 1950 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-19"
+    },
+    {
+      "title": "Čtvrtek 22. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-20"
+    },
+    {
+      "title": "6. V. 1952 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-21"
+    },
+    {
+      "title": "30. května 1968 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-22"
+    },
+    {
+      "title": "20. III. 1953 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-23"
+    },
+    {
+      "title": "Čtvrtek 22. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-24"
+    },
+    {
+      "title": "28. IX. 1954 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-25"
+    },
+    {
+      "title": "30. června 1968 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-26"
+    },
+    {
+      "title": "28. X. 1956 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-27"
+    },
+    {
+      "title": "Čtvrtek 22. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-28"
+    },
+    {
+      "title": "25. XI. 1960 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-29"
+    },
+    {
+      "title": "Čtvrtek 22. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-30"
+    },
+    {
+      "title": "12. července 1968 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-31"
+    },
+    {
+      "title": "25.–29. června 1967 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-32"
+    },
+    {
+      "title": "21. III. 1963 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-33"
+    },
+    {
+      "title": "Pátek 23. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-34"
+    },
+    {
+      "title": "?–? srpna 1967 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-35"
+    },
+    {
+      "title": "Pátek 23. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-36"
+    },
+    {
+      "title": "10. srpna 1968 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-37"
+    },
+    {
+      "title": "Pátek 23. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-38"
+    },
+    {
+      "title": "2. XII. 1963 (z deníku občana)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-39"
+    },
+    {
+      "title": "Pátek 23. srpna 1968 (z deníku turisty – pokračování)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-40"
+    },
+    {
+      "title": "25. ledna 1969 (z deníku spisovatele PK)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-41"
+    },
+    {
+      "title": "Úterý 20. srpna 1968 (z deníku turisty – začátek příběhu)",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_007.xhtml#toc_marker-42"
+    },
+    {
+      "title": "Autor čtenáři",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_008.xhtml#toc_marker-43"
+    },
+    {
+      "title": "Ediční poznámka",
+      "href": "OEBPS/Text/z_deniku_kontrarevolucionare_009.xhtml#toc_marker-44"
+    }
+  ]
+}
