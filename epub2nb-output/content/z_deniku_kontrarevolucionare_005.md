@@ -3,6 +3,6 @@ title: ''
 contentType: prose
 ---
 
-Opožděně svému synu Ondřejovi  
+_Opožděně svému synu Ondřejovi  
 a  
-snad ještě včas synovi svého syna Mikulášovi
+snad ještě včas synovi svého syna Mikulášovi_
