@@ -3,9 +3,9 @@ title: Autor čtenáři
 contentType: prose
 ---
 
-I
+## I
 
-Počátkem srpna 1968 se v Československu po všech dramatických událostech posledních měsíců rozhostila jakási blažená únava, která vytvářela umělou jistotu, že krize byla konečně zažehnána a reformu úspěšně dotáhne podzimní mimořádný sjezd komunistů. O vítězství mužů „Pražského jara“ se už nepochybovalo. I valná většina společnosti jim držela palce.
+_Počátkem srpna 1968 se v Československu po všech dramatických událostech posledních měsíců rozhostila jakási blažená únava, která vytvářela umělou jistotu, že krize byla konečně zažehnána a reformu úspěšně dotáhne podzimní mimořádný sjezd komunistů. O vítězství mužů „Pražského jara“ se už nepochybovalo. I valná většina společnosti jim držela palce._
 
 _(Kacířská domněnka hned zde: Tanky zřejmě ušetřily reformním komunistům tragický střet mezi sebou samými a pak i s celou spo­lečností. Vždyť skutečně efektivní změna by byla musela následně zahrnout také obnovu pluralitního politického systému stejně jako převedení hospodářství od státu k trhu – oboje tenkrát pro kremelskou mocnost smrtelný hřích!)_
 
@@ -49,9 +49,9 @@ _S originálními grafikami Pravoslava Sováka, který se trvale usa­dil ve Š
 
 _Doma se současně chystala knihu vydat Mladá fronta, konkrétně Karel Šiktanc. Jednu kapitolu stačila uveřejnit Jihočeská pravda dík kuráži Borise Jachnina. Což byla i labutí píseň všech zúčastněných._
 
-II
+## II
 
-Událostmi líčenými v závěru této knihy autorův volný pád teprve započal.
+_Událostmi líčenými v závěru této knihy autorův volný pád teprve započal._
 
 _(O té době mezi lety 1969 a 1979, kdy došlo i k opožděné svatbě, vypráví „memoáromán“ KDE JE ZAKOPÁN PES, který končí odsunutím autora i jeho rovněž píšící ženy do Rakouska.)_
 
@@ -69,9 +69,9 @@ _Není však těžké prorokovat: Protože se ani osvobozená společnost nikdy 
 
 _Tato kniha chtěla podat sice velmi subjektivní, ale současně i co nejautentičtější obraz, jak u nás proběhl podobný třesk naposledy, s důsledky trvajícími pak skoro půl století…_
 
-III
+## III
 
-Při každé ze svých devíti próz se autor snažil, aby všechny překlady byly pořizovány z českého originálu. To se nedařilo proto, že ten vyšel často jako poslední, když ani naše nejlepší exilová nakladatelství zdaleka nestačila možnostem velkých zahraničních domů. Rozhodující korekturu, vlastně poslední verzi, prováděl tedy autor zpravidla v německé sazbě. Právě dík jazykovému zcizení objevoval při tom v textu další možnosti zkratů, vpisů i přesmyků; když je zpětně přenášel do českého rukopisu, využil toho k novým, mnohdy rovněž významným posunům.
+_Při každé ze svých devíti próz se autor snažil, aby všechny překlady byly pořizovány z českého originálu. To se nedařilo proto, že ten vyšel často jako poslední, když ani naše nejlepší exilová nakladatelství zdaleka nestačila možnostem velkých zahraničních domů. Rozhodující korekturu, vlastně poslední verzi, prováděl tedy autor zpravidla v německé sazbě. Právě dík jazykovému zcizení objevoval při tom v textu další možnosti zkratů, vpisů i přesmyků; když je zpětně přenášel do českého rukopisu, využil toho k novým, mnohdy rovněž významným posunům._
 
 _Důsledkem jsou tedy dva originály každé z jeho próz – český a německý –, často, jako právě v případě „memoárománu“ o zakopaném psu, stavebně zásadně odlišné._
 
@@ -85,9 +85,11 @@ _Myslím si, že právě teď, se součtem jak svých politických aktivit, tak 
 
 _Dokonce věřím, že jsem je byl jemu i Mladé frontě dlužen._
 
-Autor této knihy  
+  
+
+_Autor této knihy  
 ještě po třiceti letech  
-20\. 7. 1997
+20\. 7. 1997_
 
   
 
