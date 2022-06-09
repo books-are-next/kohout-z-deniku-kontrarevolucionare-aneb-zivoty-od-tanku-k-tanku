@@ -1752,10 +1752,14 @@ Ozvaly se nadávky. Budou po nás plivat? Zmlátí nás? Anebo budu první mrtv�
 
 Současně však zazněla z tisíců hrdel píseň. Vyjeveně jsme se otočili. Od pomníku svatého Václava sestupovalo směrem k nám lidské moře, zaplňovalo celou šířku náměstí až k domovním zdem. V první řadě příslušníci nových Lidových milicí, bez pušek, zavěšeni jeden do druhého. A za nimi studenti, svazáci, pošťáci, železničáři – lid!
 
+  
+
 _Halí holá od lodi k lodi  
 od fabriky k fabrice jdem  
 a s dělníky ruku v ruce  
 prapory revoluce po celé zemi rozvinem…!_
+
+  
 
 Valili se kolem nás. Zdravily nás stovky zaťatých pěstí. Spodní půlka náměstí byla už téměř prázdná. Brečeli jsme nadšením. Včetně A.
 
@@ -1853,12 +1857,16 @@ Zvláštní! Den nebyl u konce – a už patřil historii.
 
 Petr pil nejvíc. Bylo mi jasné, proč. Přepíjel neštěstí a snad i stud. Začal hodně nahlas recitovat své Rudé rytmy.
 
+  
+
 _Nenávidím vaše až a vaše kdyby  
 Vaše ptáky vaše plazy vaše ryby  
 Vaše banky tanky erby s heslem Urvi  
 Nenávidím vaše světice i kurvy  
 Jejich ňadra jejich klíny jejich ruce  
 Špínu kterou brzy spálí revoluce!_
+
+  
 
 Znělo to tu opravdu trochu křečovitě, ale co řekla, ohromilo i mne.
 
@@ -2210,10 +2218,14 @@ Praha
 
 > Totéž pro ni, třebaže vyrostla v prostředí, o jakém se nám nesnilo. Na rozdíl od nás vědomě ztrácela. Pohodlí, přepych, domov. Proto si myslím, že byla z nás všech vlastně nejstatečnější. Snad nejsem objektivní. Ale pokud vím, byla i pro Vás živoucím dokladem síly našeho ideálu.
 
+  
+
 _Na společnou plavbu  
 K zemi plné krás  
 My stavíme stavbu  
 Stavba staví nás!_
+
+  
 
 > Pod tím připsáno rukou autorů: Ofince ke vstupu do Ko­munistické strany Československa.
 
@@ -2223,10 +2235,14 @@ Stavba staví nás!_
 
 > Vilu nabídla státu pro nebydlící, výměnou za místnost na koleji. Přestěhovala se tam s knihami, s kufrem šatů a s je­diným přáním: dobře dostudovat, aby pak mohla léčit v osvobozeném pohraničí –
 
+  
+
 _Kde naše revoluční moc  
 Má zrno přichystáno  
 Kde lišky dávají dobrou noc  
 A lidé dobré ráno!_
+
+  
 
 > To všechno jste věděli. Co už nevíte, je: 15. září jsme se vrátili z Nové huti. Ačkoliv mohla pracovat jako zdravotnice na štábu stavby, byla se mnou v zednické brigádě. Prosil jsem ji, ať se aspoň nehlásí na noční směny. Řekla, že se chce osvobodit od své třídy. Že si chce vybojovat důvěru a najít samu sebe. Den před odjezdem dostala údernický odznak.
 
@@ -2250,8 +2266,12 @@ A lidé dobré ráno!_
 
 > A tak teď sedím v hotelu na domažlickém náměstí a píšu Vám dvěma poslední dopis z Čech. Až ho dostanete, budu už „za kopečky“. Vím, že mě i Vy prohlásíte za zrádce. Ale neodcházím bojovat proti Vám. Jdu prostě s ní. Je to má povinnost.
 
+  
+
 _Unikám pouze zlobě  
 A vlast si nesu v sobě_
+
+  
 
 > To mě konečně napadl můj vlastní verš.
 
@@ -2907,10 +2927,14 @@ Prokurátor nebyl o mnoho starší než my s Petrem. Pocítil jsem k němu ob
 
 Ukázalo se, že četl moje verše. Zapůsobily možná víc než Petrův průkaz. Z ničeho nic začal recitovat.
 
+  
+
 _Skutečná láska velikou má moc  
 Roste z ní práce soudružství a děti  
 Nechodí k lidem na jedinou noc –  
 Přichází k lidem na desetiletí!_
+
+  
 
 Znovu mě napadla mučivá otázka, proč tahle moje sloka přesvědčila tolik lidí, jenom ne tu, které byla určena…
 
@@ -3450,10 +3474,14 @@ Je to stejná planeta, stejný kontinent, stejné století, ve kterém jsem žil
 
 Ten den jsem nosil u Varů hlaveň těžkého kulometu bez střídání, každý z nás si zarputile hlídal své břímě, jako by mu pomáhalo přehlušit tíhu, která zavalovala srdce. Šli jme spát, ale nebyl to zdravý spánek unavených lidí, spíš spánek před bitvou, spánek před soudem. Když dozorčí rozsvítil, nemusel ani promluvit, i když do budíčku zbývala hodina. Nikdo nevelel, a přesto se na nástupišti sešel celý pluk a čekal na osvobozující slovo. Ale i důstojníci, kteří přijeli ze svých domovů, zůstali němí. Nikým nevolána připochodovala ze tmy plukovní hudba a do studené zimy zazněl Pochod padlých revolucionářů.
 
+  
+
 _Ne, nepadne svět do rozvalin  
 přes hoře které prožívá  
 je v našich srdcích mrtvý Stalin  
 mocnější než byl za živa!_
+
+  
 
 Několik nocí jsem psal verše, nepočítal jsem je, nepočítal jsem dny, chodil jsem do stráže i na dvorské cvičiště, jedl, spal a psal jako živý automat. Všechny naše myšlenky, naše naděje se upnuly k tomu druhému!
 
@@ -3788,12 +3816,16 @@ Zasyčeli. Nevím, zda zůstal, ale rozhodně přicházeli další. Šplhali na 
 
 Souhlasné mručení. Báseň se jmenovala Dopis dívce, jež byla příliš sama, ale v zásadě to souhlasilo. Tentokrát následovaly spontánní ovace. Odhadoval jsem víc než sto lidí. Dostavila se i šlechta z tanků a zahlédl jsem důstojnické hvězdy. Poezie krmila hladové. Teď byla pravá chvíle pro verše, které šly k věci samé.
 
+  
+
 _Vojáci na západní hranici  
 štěstí a mír mé země chránící…  
 Chraňte, ach, chraňte před útokem zvenčí  
 džbánečky ručně malované v Klenčí…  
 … jak první lásku střežte stužku hranic  
 a nedejte ji nikomu a za nic!_
+
+  
 
 Potlesk nabral na síle. Využil jsem toho.
 
@@ -4333,8 +4365,12 @@ Objali jsme se. Pod vytahaným pulovrem jsem ucítil špičaté kosti. Pak jsem 
 
 Odpověděl jako před dávnými léty Cyranem.
 
+  
+
 _V svém srdci nosím elegance květ  
 jak švihák moderní se ovšem neparádím_
+
+  
 
 Seděli jsme v nedalekém parku. Měl hodinu pauzu. Bylo sychravo a vyšel bez kabátu. Nabídl jsem mu, abychom šli někam do kavárny.
 
@@ -4768,8 +4804,12 @@ _– Šalgovič robil chyby, ale je to poctivý človek, takisto ako Biľak. Ke�
 
 _Nebylo pochyb – v té velkomyslnosti hrála roli navyklá sounáležitost třídní i stavovská, sentimentální semknutost komunistů z aparátu, vyrostlá v dobách, kdy skoro všichni ostatní komunisté byli agenty imperialistických rozvědek a zasloužili pověsit. Okamžitě mi zazněl slavný monolog, v němž je obsaženo nejvážnější poučení pro všechny revolucionáře._
 
+  
+
 _Vždyť všichni jsou to čestní mužové  
 a Brutus? To je nejčestnější muž!_
+
+  
 
 _Ubohý Saško-Brute! vykřikl jsem, proboha, nedovoluj Antoniům, aby spolu s tebou pohřbívali Caesara, neboť oni tě posléze nazvou zločincem a strhnou i s námi do záhuby, aby ten vavřín získali sami!_
 
@@ -4804,7 +4844,11 @@ _Sázava_
 
 _SJEZD SPISOVATELŮ aneb HENDRYCHIÁDA_
 
+  
+
 _Tragikomedie o pěti dějstvích, s prologem a epilogem. (Stručný obsah hry, doplněný nepodstatně zkráceným textem čtvrtého aktu.)_
+
+  
 
 _Osoby a obsazení:_
 
@@ -5810,6 +5854,8 @@ Proto jsem teď každou chvíli vsunul ruku do náprsní kapsy. Byl tam zalepen�
 
 Odpoledne mě drželo nad vodou zařizování pohřbu. Pak jsem byl u dětí. Oplakaly ji a za chvíli se už bytem znovu rozléhaly jejich spory a smích. Asi to bylo dobře. Můj pocit osamění však rostl. Jel jsem domů a po letech psal verše.
 
+  
+
 _Vždycky jsem věřil  
 že jsi nezranitelná a nestárnoucí  
 Mlhou dětských nemocí  
@@ -5827,6 +5873,8 @@ Kdo mohl tušit
 malé neviditelné místo  
 kudy se provlékne  
 smrt_
+
+  
 
 Garsonka, na kterou jsem si čtyři roky od rozvodu marně zvykal, mi začala padat na hlavu. Bloudil jsem po ní, hledaje ve svých věcech a plánech náznak pevného bodu, ale pokud byl ještě včera v něčem nějaký smysl, teď jsem ho tam nenalézal. Konečně jsem pochopil, že dnes nemohu být sám.
 
