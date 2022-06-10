@@ -3,6 +3,8 @@ title: ''
 contentType: prose
 ---
 
+<section>
+
 Znění tohoto textu vychází z díla [Z deníku kontrarevolucionáře](https://search.mlp.cz/cz/titul/z-deniku-kontrarevolucionare-aneb-zivoty-od-tanku-k-tanku/2000158/#/) tak, jak bylo vydáno nakladatelstvím Mladá fronta v Praze v roce 1997. Pro potřeby vydání Městské knihovny v Praze byl text redakčně zpracován.
 
 **§**
@@ -15,6 +17,10 @@ Vydání (obálka, upoutávka, citační stránka a grafická úprava), jehož a
 
 Verze 1.0 z 15. 5. 2020.
 
-  
+</section>
+
+<section>
 
 ![image002.jpg](./resources/image002_fmt.jpeg)
+
+</section>

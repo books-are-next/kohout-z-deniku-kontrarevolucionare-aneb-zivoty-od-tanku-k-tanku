@@ -3,6 +3,8 @@ title: Autor čtenáři
 contentType: prose
 ---
 
+<section>
+
 ## I
 
 _Počátkem srpna 1968 se v Československu po všech dramatických událostech posledních měsíců rozhostila jakási blažená únava, která vytvářela umělou jistotu, že krize byla konečně zažehnána a reformu úspěšně dotáhne podzimní mimořádný sjezd komunistů. O vítězství mužů „Pražského jara“ se už nepochybovalo. I valná většina společnosti jim držela palce._
@@ -85,12 +87,18 @@ _Myslím si, že právě teď, se součtem jak svých politických aktivit, tak 
 
 _Dokonce věřím, že jsem je byl jemu i Mladé frontě dlužen._
 
-  
+</section>
+
+<section>
 
 _Autor této knihy  
 ještě po třiceti letech  
 20\. 7. 1997_
 
-  
+</section>
+
+<section>
 
 Tato kniha vznikala od podzimu 1968 do jara 1969 v Karlových Varech, v Praze a ve švýcarském Lucernu.
+
+</section>

@@ -3,6 +3,8 @@ title: ''
 contentType: prose
 ---
 
+<section>
+
 Středa 21. srpna 1968  
 (z deníku turisty – pokračování)
 
@@ -75,7 +77,9 @@ Středa 21. srpna 1968
 
 Praha
 
-  
+</section>
+
+<section>
 
 Když se ozvaly sirény, zdálo se mi o A. Snažil jsem se jí rozepnout šedivý zimníček, ale prsty se mi třásly a knoflíků stále přibývalo. Hned po výstraze následoval poplach. Přetáhl jsem si deku přes hlavu, chtěl jsem rozepínat dál, ale to už byla v pokoji maminka. Rychle jsme se oblékli, otevřeli okna, aby je nevyrazila tlaková vlna, a vzali náletové kufry. Ve tmě schodiště bylo slyšet kroky, hlasy a dětský pláč.
 
@@ -131,12 +135,14 @@ V tom případě si někdy vzpomeň na ten den, kdy prvně padaly na Prahu bomb
 
 * * *
 
-7\. ledna 1968  
-(z deníku spisovatele PK)
+_7\. ledna 1968  
+(z deníku spisovatele PK)_
 
 _Praha_
 
-  
+</section>
+
+<section>
 
 _Když se v říjnu rozkřiklo, že na zasedání ÚV KSČ nazval Antonín No­votný Alexandra Dubčeka nacionalistou, řekl jsem v divadle._
 
@@ -250,7 +256,9 @@ Středa 21. srpna 1968
 
 Praha
 
-  
+</section>
+
+<section>
 
 Matykář jako obvykle zahajloval. Div se nestrhl. Je už jediný, kdo to dělá. A jediný, kdo nás zkouší, i když ví, že máme na kahánku. Septimy už jsou v totálajnsatzu. Teď jsme na řadě my.
 
@@ -332,12 +340,14 @@ Otče náš, jsi-li na nebesích, posvěť se jméno Tvé, buď vůle Tvá jak v
 
 * * *
 
-21\. ledna 1968  
-(z deníku spisovatele PK)
+_21\. ledna 1968  
+(z deníku spisovatele PK)_
 
 _Praha_
 
-  
+</section>
+
+<section>
 
 _Za okny svítí v zimním slunci Hrad, Matyášovou branou plyne nedělní korzo, je hřích sedět doma, mám hlad jako vlk, ale nejsem s to odtrhnout se od své četby._
 
@@ -432,7 +442,9 @@ _Je-li to tedy opravdu šance, pak nám buď Marx milostiv, neboť je se vší p
 
 Praha
 
-  
+</section>
+
+<section>
 
 Píšu Ti na sklonku dne, který mi dal všechno, po čem jsem kdy toužil: svobodu a Tebe!
 
@@ -694,7 +706,9 @@ Středa 21. srpna 1968
 
 Praha
 
-  
+</section>
+
+<section>
 
 Z rádia zaznívá jásot statisíců. Po šesti letech a sedmi měsících se vrací do Prahy pan prezident Beneš. Jak jsem se těšil na tenhle den! A přece sedím doma, smutný a prázdný.
 
@@ -937,12 +951,14 @@ _On_: Ano, protože je to v jejich nejvlastnějším zájmu. Směli jsme vzdát
 
 * * *
 
-29\. února 1968  
-(z deníku spisovatele PK)
+_29\. února 1968  
+(z deníku spisovatele PK)_
 
 _Praha_
 
-  
+</section>
+
+<section>
 
 _Ráno na Vyšehradském hřbitově. Letos mi chybí dvojnásob. Komu se poštěstí mít za kamaráda vlastního otce… Nebo jsem tím byl naopak připraven o nejdůležitějšího oponenta?_
 
@@ -1057,7 +1073,9 @@ _Ale to jim neřeknu. Budu odcházet s hřejivým pocitem, že jsem se významn
 
 Praha
 
-  
+</section>
+
+<section>
 
 Ten den, co jsme spolu pohřbili Roberta, ten večer, kdy zrušili zatemnění a my se dívali z Letné, jak se po šesti letech rozsvěcí svobodná Praha, tu noc, kdy nás sovětský komandir pozval k ohni, abychom ochutnali vodku – jsme si připili na bratrství.
 
@@ -1308,12 +1326,14 @@ Středa–čtvrtek 21.–22. srpna 1968
 
 * * *
 
-13.–22. března 1968  
-(z deníku spisovatele PK)
+_13.–22. března 1968  
+(z deníku spisovatele PK)_
 
 _Praha_
 
-  
+</section>
+
+<section>
 
 _Středa třináctého_
 
@@ -1638,7 +1658,9 @@ _To je taky nejvhodnější aktšlus pro epochu hluchoněmých._
 
 Praha
 
-  
+</section>
+
+<section>
 
 Dívám se na poslední stránku deníku, napsanou před pěti dny, a připadá mi, že mezi ní a tímto novým listem moře pohltilo Atlantidu, láva spálila Pompeje a plebejský plevel zadusil věčný Řím.
 
@@ -1752,14 +1774,18 @@ Ozvaly se nadávky. Budou po nás plivat? Zmlátí nás? Anebo budu první mrtv�
 
 Současně však zazněla z tisíců hrdel píseň. Vyjeveně jsme se otočili. Od pomníku svatého Václava sestupovalo směrem k nám lidské moře, zaplňovalo celou šířku náměstí až k domovním zdem. V první řadě příslušníci nových Lidových milicí, bez pušek, zavěšeni jeden do druhého. A za nimi studenti, svazáci, pošťáci, železničáři – lid!
 
-  
+</section>
+
+<section>
 
 _Halí holá od lodi k lodi  
 od fabriky k fabrice jdem  
 a s dělníky ruku v ruce  
 prapory revoluce po celé zemi rozvinem…!_
 
-  
+</section>
+
+<section>
 
 Valili se kolem nás. Zdravily nás stovky zaťatých pěstí. Spodní půlka náměstí byla už téměř prázdná. Brečeli jsme nadšením. Včetně A.
 
@@ -1857,7 +1883,9 @@ Zvláštní! Den nebyl u konce – a už patřil historii.
 
 Petr pil nejvíc. Bylo mi jasné, proč. Přepíjel neštěstí a snad i stud. Začal hodně nahlas recitovat své Rudé rytmy.
 
-  
+</section>
+
+<section>
 
 _Nenávidím vaše až a vaše kdyby  
 Vaše ptáky vaše plazy vaše ryby  
@@ -1866,7 +1894,9 @@ Nenávidím vaše světice i kurvy
 Jejich ňadra jejich klíny jejich ruce  
 Špínu kterou brzy spálí revoluce!_
 
-  
+</section>
+
+<section>
 
 Znělo to tu opravdu trochu křečovitě, ale co řekla, ohromilo i mne.
 
@@ -2206,7 +2236,9 @@ S tebou, lásko.
 
 Praha
 
-  
+</section>
+
+<section>
 
 > Kamarádi, Petře a Pavle,
 
@@ -2218,14 +2250,18 @@ Praha
 
 > Totéž pro ni, třebaže vyrostla v prostředí, o jakém se nám nesnilo. Na rozdíl od nás vědomě ztrácela. Pohodlí, přepych, domov. Proto si myslím, že byla z nás všech vlastně nejstatečnější. Snad nejsem objektivní. Ale pokud vím, byla i pro Vás živoucím dokladem síly našeho ideálu.
 
-  
+</section>
+
+<section>
 
 _Na společnou plavbu  
 K zemi plné krás  
 My stavíme stavbu  
 Stavba staví nás!_
 
-  
+</section>
+
+<section>
 
 > Pod tím připsáno rukou autorů: Ofince ke vstupu do Ko­munistické strany Československa.
 
@@ -2235,14 +2271,18 @@ Stavba staví nás!_
 
 > Vilu nabídla státu pro nebydlící, výměnou za místnost na koleji. Přestěhovala se tam s knihami, s kufrem šatů a s je­diným přáním: dobře dostudovat, aby pak mohla léčit v osvobozeném pohraničí –
 
-  
+</section>
+
+<section>
 
 _Kde naše revoluční moc  
 Má zrno přichystáno  
 Kde lišky dávají dobrou noc  
 A lidé dobré ráno!_
 
-  
+</section>
+
+<section>
 
 > To všechno jste věděli. Co už nevíte, je: 15. září jsme se vrátili z Nové huti. Ačkoliv mohla pracovat jako zdravotnice na štábu stavby, byla se mnou v zednické brigádě. Prosil jsem ji, ať se aspoň nehlásí na noční směny. Řekla, že se chce osvobodit od své třídy. Že si chce vybojovat důvěru a najít samu sebe. Den před odjezdem dostala údernický odznak.
 
@@ -2266,12 +2306,16 @@ A lidé dobré ráno!_
 
 > A tak teď sedím v hotelu na domažlickém náměstí a píšu Vám dvěma poslední dopis z Čech. Až ho dostanete, budu už „za kopečky“. Vím, že mě i Vy prohlásíte za zrádce. Ale neodcházím bojovat proti Vám. Jdu prostě s ní. Je to má povinnost.
 
-  
+</section>
+
+<section>
 
 _Unikám pouze zlobě  
 A vlast si nesu v sobě_
 
-  
+</section>
+
+<section>
 
 > To mě konečně napadl můj vlastní verš.
 
@@ -2289,7 +2333,9 @@ A vlast si nesu v sobě_
 
 > Domažlice 2. X. 1949
 
-  
+</section>
+
+<section>
 
 Slíbil jsem C., že ji vezmu na Dětství Maxima Gorkého. Čekala u kina Sevastopol. Místo toho jsem seděl s Petrem ve Slovanském domě, u stolu, kde jsme se tolikrát ve třech skládali na jeden oběd a zapíjeli své triumfy sklenicí laciného druháku. Dneska jsme měli na pořádné víno, ale byli zdrceni.
 
@@ -2361,12 +2407,14 @@ Podruhé v životě jsem pil za mrtvého přítele. Jenomže Robert zůstane na
 
 * * *
 
-24\. dubna 1968  
-(z deníku spisovatele PK)
+_24\. dubna 1968  
+(z deníku spisovatele PK)_
 
 _Praha_
 
-  
+</section>
+
+<section>
 
 _Přečetl jsem úplný protokol dubnového zasedání ÚV. Trvalo šest dnů, vystoupilo 144 diskutérů, byl schválen Akční program strany a složení nové vlády. Ten výkon patří spíš do sportovních tabulek._
 
@@ -2543,7 +2591,9 @@ _– Teď se tam přece uprázdnila spousta postů._
 
 Moskva
 
-  
+</section>
+
+<section>
 
 Vzal jsem sekyru a rozštípal otcův mahagonový stůl na malé třísky. Pracoval jsem úporně, abych se zahřál a také abych nemusel myslet na chvíle, které jsme prožili kolem něho. Pak jsem zatopil v bubínku a díval se, jak v mihotavém ohni naposled vydává teplo mé dětství, mé mládí, mých krátkých dvaadvacet let.
 
@@ -2735,7 +2785,9 @@ _On_: Ne… Jenom unavenej čtyřicátník trpící komplexem vlastní viny. Ač
 
 Praha
 
-  
+</section>
+
+<section>
 
 Zavolala v půl desáté večer. Myslel jsem, že je to C. Málem jsem utrhl sluchátko.
 
@@ -2921,20 +2973,26 @@ Na Soudním náměstí jsme se rozloučili. Neměl jsem, čím ji ještě povzbu
 
 Ve dveřích budovy se zastavila a zamávala. Zdálo se mi, že mě ani nevidí. S úzkostí jsem si uvědomil, na co asi myslí. Že na tohle náměstí plné slunce a života vyjde třeba až za mnoho let…
 
-  
+</section>
+
+<section>
 
 Prokurátor nebyl o mnoho starší než my s Petrem. Pocítil jsem k němu obdiv. Takoví jako on teď nesli hlavní tíhu boje proti agentům západních rozvědek, kteří pronikali až na nejvyšší místa ve straně.
 
 Ukázalo se, že četl moje verše. Zapůsobily možná víc než Petrův průkaz. Z ničeho nic začal recitovat.
 
-  
+</section>
+
+<section>
 
 _Skutečná láska velikou má moc  
 Roste z ní práce soudružství a děti  
 Nechodí k lidem na jedinou noc –  
 Přichází k lidem na desetiletí!_
 
-  
+</section>
+
+<section>
 
 Znovu mě napadla mučivá otázka, proč tahle moje sloka přesvědčila tolik lidí, jenom ne tu, které byla určena…
 
@@ -3230,12 +3288,14 @@ Proč je na tomhle zázračném světě tak prázdný a smutný pokoj? Proč m�
 
 * * *
 
-30\. května 1968  
-(z deníku spisovatele PK)
+_30\. května 1968  
+(z deníku spisovatele PK)_
 
 _Saarbrücken_
 
-  
+</section>
+
+<section>
 
 _Byl jsem na vrcholu blaha: Dvě hodiny jsem tahal před televizní kamerou drátěný plot, aby to hodilo iluzi jízdy. Konečně vypadla má ubohá hrdinka Lída Matysová úspěšně z vlaku. Taková láska škodí… Přišlo mi báječné, že jsem ty svoje až dosud ve zdraví přežil. Pravil jsem dvojjazyčně – Na shledanou pozítří, vzal od přátel poštu do Prahy a jel. Svět se mi opět jednou jevil úžasným, takže jsem si dokonce zpíval._
 
@@ -3255,7 +3315,9 @@ _Nebyl jsem si jist, že by mé pohnutky správně pochopila._
 
 _Ostatně jsem na to téměř zapomněl. Absolvoval jsem řadu setkání, vyslechl množství informací a rozborů. Navíc mě rozveselil dopis, který došel na základě našeho dotazu, zdali už není čas vrhnout světlo do jisté staré aféry. Už úvod byl impozantní._
 
-  
+</section>
+
+<section>
 
 _„NÁČELNÍK HLAVNÍ SPRÁVY STÁTNÍ BEZPEČNOSTI_
 
@@ -3271,7 +3333,9 @@ _Čj.: N/Ka-43/1-1968_
 
 > _„… Závěrem vás, vážení soudruzi, ujišťuji, že jsem již provedl opatření, aby se podobné případy nemohly opakovat. Se soudružským pozdravem pplk. J. B., zástupce náčelníka.“_
 
-  
+</section>
+
+<section>
 
 _Bylo milo hledět, jak si v tomto podivuhodném jaru si Státní bezpečnost osvojuje základy kindrštube. Škoda jen, že dosud nebyla schopna přiznat, co se u mne hledalo a kdo k tomu dal požehnání. Měl jsem další důvod mluvit s P._
 
@@ -3462,7 +3526,9 @@ _Tak jsem se dozvěděl, že Antonín Novotný byl zbaven členství v ÚV a �
 
 Praha
 
-  
+</section>
+
+<section>
 
 Stokrát sepraná vojenská košile, která vybledla jako srpnová tráva, tuhé, neohebné kalhoty, snad podšité smirkem, řemen vydechující na dálku pach nové kůže, těžké poloholínky, upnuté řemínky, unavené oči, vpadlé tváře, ruce napuchlé zimou a pokryté fialovými škrábanci – jsem to já?
 
@@ -3474,14 +3540,18 @@ Je to stejná planeta, stejný kontinent, stejné století, ve kterém jsem žil
 
 Ten den jsem nosil u Varů hlaveň těžkého kulometu bez střídání, každý z nás si zarputile hlídal své břímě, jako by mu pomáhalo přehlušit tíhu, která zavalovala srdce. Šli jme spát, ale nebyl to zdravý spánek unavených lidí, spíš spánek před bitvou, spánek před soudem. Když dozorčí rozsvítil, nemusel ani promluvit, i když do budíčku zbývala hodina. Nikdo nevelel, a přesto se na nástupišti sešel celý pluk a čekal na osvobozující slovo. Ale i důstojníci, kteří přijeli ze svých domovů, zůstali němí. Nikým nevolána připochodovala ze tmy plukovní hudba a do studené zimy zazněl Pochod padlých revolucionářů.
 
-  
+</section>
+
+<section>
 
 _Ne, nepadne svět do rozvalin  
 přes hoře které prožívá  
 je v našich srdcích mrtvý Stalin  
 mocnější než byl za živa!_
 
-  
+</section>
+
+<section>
 
 Několik nocí jsem psal verše, nepočítal jsem je, nepočítal jsem dny, chodil jsem do stráže i na dvorské cvičiště, jedl, spal a psal jako živý automat. Všechny naše myšlenky, naše naděje se upnuly k tomu druhému!
 
@@ -3533,7 +3603,9 @@ Až budeš starší, budeš objevovat a poznávat Stalina, jako jsme my, naroze
 
 Spi klidně, človíčku. Aby to jaro přišlo, aby ho nespálil mráz, vstávám a odcházím znovu házet těžký obranný granát, ze kterého jde na mě strach. Abych se nebál, zpívám si do kroku.
 
-  
+</section>
+
+<section>
 
 _Nejsme dávno nejsme malincí  
 nechodíme nocí jako stádo ovcí  
@@ -3680,7 +3752,9 @@ Není s námi Gottwald – buďme gottwaldovci!_
 
 Přibyslav
 
-  
+</section>
+
+<section>
 
 – To není náhoda, zasmál jsem se. – Četl jsem tvé polní letáky, tak jsem se dal přidělit k vám. Ať spolu jednou doopravdy válčíme!
 
@@ -3816,7 +3890,9 @@ Zasyčeli. Nevím, zda zůstal, ale rozhodně přicházeli další. Šplhali na 
 
 Souhlasné mručení. Báseň se jmenovala Dopis dívce, jež byla příliš sama, ale v zásadě to souhlasilo. Tentokrát následovaly spontánní ovace. Odhadoval jsem víc než sto lidí. Dostavila se i šlechta z tanků a zahlédl jsem důstojnické hvězdy. Poezie krmila hladové. Teď byla pravá chvíle pro verše, které šly k věci samé.
 
-  
+</section>
+
+<section>
 
 _Vojáci na západní hranici  
 štěstí a mír mé země chránící…  
@@ -3825,7 +3901,9 @@ džbánečky ručně malované v Klenčí…
 … jak první lásku střežte stužku hranic  
 a nedejte ji nikomu a za nic!_
 
-  
+</section>
+
+<section>
 
 Potlesk nabral na síle. Využil jsem toho.
 
@@ -3933,12 +4011,14 @@ V tu minutu jsem neodvolatelně vyrostl z kabátu své poezie. Rozhodl jsem se
 
 * * *
 
-30\. června 1968  
-(z deníku spisovatele PK)
+_30\. června 1968  
+(z deníku spisovatele PK)_
 
 _Sázava_
 
-  
+</section>
+
+<section>
 
 _Pan Kulhánek, rolník z Xaverova, který mi významně vypomáhá na zahradě, dokončil svůj pravidelný komentář k poměrům v JZD i OSN, tentokrát nebývale nadějný, zavěsil kosu a vydal se na cestu domů. Slunce stojí nad klášterem, voní posečená tráva, zrajou třešně, ve skleníku se udí kýty okurek, a jezevčík Adam se položil na hřbet, zpit psím blaženstvím. Je čas položit gramofon pod břízy, aby celá zahrada zahrála Malou noční hudbu. Snad přehluší dotěrný rachot spojeneckých tanků, kterých tu stále jezdí víc, než je v kraji zvykem._
 
@@ -4053,7 +4133,9 @@ _„Letošního jara vrátila se nám znovu jako po válce velká příležitost
 
 Praha
 
-  
+</section>
+
+<section>
 
 Jako za války jsme postupně poslouchali zprávy v angličtině, francouzštině i němčině. Chyběla nám jen kristovská tvář Vladimíra Petřeka, mučedníka heydrichiády. Zato k rádiu přibyl televizor. A přes zavřené dveře k nám doléhal smích i pláč: D. koupala děti. Na obrazovce už zase hořeli viselci, polití benzinem. Tentokrát Maďaři.
 
@@ -4249,7 +4331,9 @@ Vrazil jsem do sebe velkou vodku. Nepomohlo to ani v nejmenším.
 
 Praha
 
-  
+</section>
+
+<section>
 
 Kuchař pracoval jako dříve za skleněnou stěnou a koktajly míchala stále táž bardáma, po léta neměnná jako Čapkova paní Makropulos. Má krásná láska E., která ze mě snímala smutek, mě sem doslova vtáhla, přestože jsem se bránil.
 
@@ -4365,12 +4449,16 @@ Objali jsme se. Pod vytahaným pulovrem jsem ucítil špičaté kosti. Pak jsem 
 
 Odpověděl jako před dávnými léty Cyranem.
 
-  
+</section>
+
+<section>
 
 _V svém srdci nosím elegance květ  
 jak švihák moderní se ovšem neparádím_
 
-  
+</section>
+
+<section>
 
 Seděli jsme v nedalekém parku. Měl hodinu pauzu. Bylo sychravo a vyšel bez kabátu. Nabídl jsem mu, abychom šli někam do kavárny.
 
@@ -4581,12 +4669,14 @@ Oněměl jsem.
 
 * * *
 
-12\. července 1968  
-(z deníku spisovatele PK)
+_12\. července 1968  
+(z deníku spisovatele PK)_
 
 _Sázava_
 
-  
+</section>
+
+<section>
 
 _Ještě v pět odpoledne jsem ležel pod svými pěti břízami._
 
@@ -4804,12 +4894,16 @@ _– Šalgovič robil chyby, ale je to poctivý človek, takisto ako Biľak. Ke�
 
 _Nebylo pochyb – v té velkomyslnosti hrála roli navyklá sounáležitost třídní i stavovská, sentimentální semknutost komunistů z aparátu, vyrostlá v dobách, kdy skoro všichni ostatní komunisté byli agenty imperialistických rozvědek a zasloužili pověsit. Okamžitě mi zazněl slavný monolog, v němž je obsaženo nejvážnější poučení pro všechny revolucionáře._
 
-  
+</section>
+
+<section>
 
 _Vždyť všichni jsou to čestní mužové  
 a Brutus? To je nejčestnější muž!_
 
-  
+</section>
+
+<section>
 
 _Ubohý Saško-Brute! vykřikl jsem, proboha, nedovoluj Antoniům, aby spolu s tebou pohřbívali Caesara, neboť oni tě posléze nazvou zločincem a strhnou i s námi do záhuby, aby ten vavřín získali sami!_
 
@@ -4835,20 +4929,26 @@ _Pod nohama mi skřípal písek. Dům byl tmavý, ale Adam se probudil a ospal�
 
 * * *
 
-25.–29. června 1967  
-(z deníku spisovatele PK)
+_25.–29. června 1967  
+(z deníku spisovatele PK)_
 
 _Sázava_
 
-  
+</section>
+
+<section>
 
 _SJEZD SPISOVATELŮ aneb HENDRYCHIÁDA_
 
-  
+</section>
+
+<section>
 
 _Tragikomedie o pěti dějstvích, s prologem a epilogem. (Stručný obsah hry, doplněný nepodstatně zkráceným textem čtvrtého aktu.)_
 
-  
+</section>
+
+<section>
 
 _Osoby a obsazení:_
 
@@ -5075,7 +5175,9 @@ _KONEC_
 
 Karlovy Vary
 
-  
+</section>
+
+<section>
 
 Všechno bylo přesně takové, jaké jsme to tu opustili o Vánocích. Jen náš pokoj opět podražil, ale vzali jsme ho stejně, protože prdelatý andělíček mezi vysokými květy, nepopsatelně kýčovité dílo neznámého mistra, který místo zaplacení účtu vyvedl v pestrých barvách nejmladší ratolest hoteliéra Puppa, byl pro nás oba přes tři roky erbovním znakem krátkých prázdnin od života.
 
@@ -5252,12 +5354,14 @@ Pátek 23. srpna 1968
 
 * * *
 
-?–? srpna 1967  
-(z deníku spisovatele PK)
+_?–? srpna 1967  
+(z deníku spisovatele PK)_
 
 _Hamburk_
 
-  
+</section>
+
+<section>
 
 CESTA DO HAMBURKU aneb UKAŽTE MU NÁSTROJE!
 
@@ -5311,11 +5415,15 @@ _OBRAZ 8 Reál – noc. PK rozčileně hází do kufru knihy, texty, magnetofon
 
 _– Tvá milovaná strana, praví Z., – je nejzábavnější spolek pod sluncem._
 
-  
+</section>
+
+<section>
 
 _TITULEK: STŘEDA_
 
-  
+</section>
+
+<section>
 
 _OBRAZ 9 Exteriér – den. V zářivém ránu nakládají Z. a PK na dvoře tehdejšího Salmovského paláce volhu bezpočtem kufrů a ranců, neboť odjíždějí téměř na dva měsíce. Za oknem jim na rozloučenou kyne domovnice._
 
@@ -5391,21 +5499,29 @@ _OBRAZ 30 Reál – noc. Hala budovy. Z. spí v křesle. Vchází Náčelník 
 
 _OBRAZ 31 Exteriér – noc. PK a Z. házejí do kufrů zvlhlé prádlo i šatstvo, za asistence nehybně přihlížejícího Náčelníka a Prvního důstojníka. Děje se na neosvětlené rampě. Následuje veselá scénka, kdy PK spadne do díry pod vozem a natluče si koleno. Náčelník se ptá, co mu je. Spisovatel řekne neslušné slovo, které noc cudně ztlumí. Poté nasedne se Z. do volhy a odjíždí bez pozdravu zpět ku Praze._
 
-  
+</section>
+
+<section>
 
 _TITULEK: ČTVRTEK_
 
-  
+</section>
+
+<section>
 
 _OBRAZ 32 Montáž – exteriér – reál – den. Rapid střih. Zatímco Z. čeká na pověřené pracovníky, proplíží se PK pod okny domovnice a navštíví postupně svého právního zástupce, Svaz spisovatelů, Svaz divadelníků, státní agenturu Prakokoncert, obvodní prokuraturu, Generální prokuraturu a Nejvyšší soud. Vynechá pouze ÚV KSČ, protože s P. nehodlá už v životě promluvit. Posléze umí vylíčit celý případ za 12 minut. Všude se však dozví, že na něho nebylo učiněno žádné trestní oznámení. Všude mu též dávají dobrou radu, aby se jel koupat na Sázavu, neboť za škodu v Hamburku není právně odpovědný. Nakonec dorazí na ministerstvo vnitra, avšak dostane se pouze do hovorny, kde s ním jedná neznámý muž, jenž ho rovněž ujistí, že jim o věci není nic známo._
 
 _OBRAZ 33 Reál – podvečer. Doma čeká PK překvapení v podobě dvou mužů, z nichž jeden se představí jako Blatný a tvrdí mu s úsměvem, že je listonošem ministerstva vnitra. Podle seznamu vracejí zadržené materiály a vesele s ním žertují. O pasu však nemají žádné zprávy. PK jim za 11 minut vylíčí svůj příběh a spočítá, co bude tento žertík republiku stát. Během hovoru volá přítel šéfredaktor, jenž dostal právě vnitrostranickou informaci, že PK byl zadržen, když se chystal uprchnout na Západ s velkou sumou peněz a kompromitujícími politickými dokumenty. Protože projeví domněnku, že snad na věci přece jen něco bylo, pošle ho PK telefonicky někam a zavěsí. Muž, který se představil jako Blatný, mu navrhne, aby napsal stížnost ministrovi, což on ihned učiní a oni si ji odnášejí._
 
-  
+</section>
+
+<section>
 
 _TITULEK: PÁTEK_
 
-  
+</section>
+
+<section>
 
 _OBRAZ 34 Tamtéž ráno. PK se nemůže smířit s tím, že kvůli anonymnímu mizerovi má mít republika ostudu a ještě za ni platit ve valutách. Obléká se, aby navštívil další instance. Zvoní telefon: volá muž, jenž se včera představil jako Blatný. Sděluje, že ho ta legrace stála celou noc a zve se za to na kafe. PK i Z. na sebe zírají._
 
@@ -5431,11 +5547,15 @@ _PK je poprvé blízek hysterickému smíchu nebo pláči. Ovládne se však a 
 
 _OBRAZ 39 Reál – noc. PK k sobě pozve odvěkého přítele a snaží se opít, což se mu nezdaří, jelikož má tatínkovu školu. Režisér Luboš Pistorius zkoumá svým analytickým mozkem další možnosti. Pak navrhne PK, aby ráno zavolal náměstka ministra zahraničních věcí Kličku._
 
-  
+</section>
+
+<section>
 
 _TITULEK: SOBOTA_
 
-  
+</section>
+
+<section>
 
 _OBRAZ 40 Tamtéž ráno. PK volá náměstka Kličku, jejž viděl dvakrát v životě. Přesto je okamžitě pozván do Černínského paláce._
 
@@ -5508,12 +5628,14 @@ Pátek 23. srpna 1968
 
 * * *
 
-10\. srpna 1968  
-(z deníku spisovatele PK)
+_10\. srpna 1968  
+(z deníku spisovatele PK)_
 
 _Na hranici_
 
-  
+</section>
+
+<section>
 
 _Poslední středu v červenci přišla zpráva, že k setkání delegací KSČ a KSSS kdesi na našem území dojde v nejbližších dnech. Jednotky Varšavské smlouvy, které se zúčastnily červnového cvičení, stále ještě usilovně popojížděly ke svým hranicím. Nervozita vzrůstala. Ve čtvrtek nato jsme chtěli obědvat v Klášterní. Drobně pršelo. K našemu stolu si bez ptaní přisedl cizí mladý muž, blondýn s výraznou tváří, ve které cosi nesouhlasilo. Vzali jsme ho s tichým pohoršením na vědomí a studovali jídelní lístek, když se na mě obrátil._
 
@@ -5815,7 +5937,9 @@ _On_: Ať tě nemýlí, že jsem trochu ožralý. Jsem ožralý, protože _vím_
 
 Praha
 
-  
+</section>
+
+<section>
 
 _Ty  
 narozená na prahu  
@@ -5840,7 +5964,9 @@ jsi probodla světovou krizi
 a světovou válku jsi vyhrála u plotny  
 proměňujíc hlínu v chléb a vodu v čaj_
 
-  
+</section>
+
+<section>
 
 O půlnoci jsem znovu zajel k nemocnici, postavil vůz napříč silnice a několikrát blikl reflektorem do jejích oken. Říkávala, že když nezaberou prášky a nemůže spát, pouští si na stropě filmy o mém dětství. Chtěl jsem jí jeden promítnout pro radost sám. Ráno jsem volal z divadla, jak se jí daří. Sdělili mi, že o půlnoci zemřela.
 
@@ -5854,7 +5980,9 @@ Proto jsem teď každou chvíli vsunul ruku do náprsní kapsy. Byl tam zalepen�
 
 Odpoledne mě drželo nad vodou zařizování pohřbu. Pak jsem byl u dětí. Oplakaly ji a za chvíli se už bytem znovu rozléhaly jejich spory a smích. Asi to bylo dobře. Můj pocit osamění však rostl. Jel jsem domů a po letech psal verše.
 
-  
+</section>
+
+<section>
 
 _Vždycky jsem věřil  
 že jsi nezranitelná a nestárnoucí  
@@ -5874,7 +6002,9 @@ malé neviditelné místo
 kudy se provlékne  
 smrt_
 
-  
+</section>
+
+<section>
 
 Garsonka, na kterou jsem si čtyři roky od rozvodu marně zvykal, mi začala padat na hlavu. Bloudil jsem po ní, hledaje ve svých věcech a plánech náznak pevného bodu, ale pokud byl ještě včera v něčem nějaký smysl, teď jsem ho tam nenalézal. Konečně jsem pochopil, že dnes nemohu být sám.
 
@@ -6121,16 +6251,20 @@ Pátek 23. srpna 1968
 
 * * *
 
-25\. ledna 1969  
-(z deníku spisovatele PK)
+_25\. ledna 1969  
+(z deníku spisovatele PK)_
 
 _Praha – Karlovy Vary_
 
-  
+</section>
+
+<section>
 
 _Když zmlkla hudba a začal první smuteční projev, pozdravily studenta Jana Palacha všechny pražské zvony. Do studny úzkého nádvoří staroslavného Karolina dopadl jejich zvuk tlumeně a měkce, stačil však přehlušit hlasy řečníků. Měl jsem čas vracet se proti proudu času…_
 
-  
+</section>
+
+<section>
 
 _Když jsem se 24. září 1968, po zrušení tříleté smlouvy se státní činohrou v Düsseldorfu, proškubal dešťovými mraky – Z. čekala na opravu stávkujícího renaulta, aby přepravila domů naši nepoužitou výbavu plážovou i svatební –, spatřil jsem místo ruzyňského letiště tankodrom. Stovky pancéřů neskryli do lesa ani pod maskovací sítě, bylo v tom sebevědomí invazorů, kteří ovládali i vzduch._
 
@@ -6366,7 +6500,9 @@ _Praha, která se přede mnou objevila ve všech horizontálách i vertikálác
 
 _V dlani mi cinkalo deset maličkých smrtí, ale nad protější střechou dál pleskala prezidentská vlajka jako křídlo neudolatelného fénixe._
 
-  
+</section>
+
+<section>
 
 _Průvod za Palachovou rakví šel mlčky němým špalírem statisíců. Spatřil jsem jediného policistu, uvězněného v davu. Co bránilo nesmírným masám, aby se daly do pohybu, zpřetrhaly šestistupy konduktu a uvolnily lavinu, jež by mohla zdůvodnit novou bratrskou pancéřovou pomoc? Jenom řídký řetěz studentů filozofické fakulty, kteří měli na klopách papírovou sovu a v rukou provázek, snad nejtenčí, jaký se dal koupit._
 
@@ -6390,7 +6526,9 @@ _Tak mi osud sehrál s oběma nejstaršími přáteli klasickou rošádu a uza
 
 _Ten můj zůstal až na další otevřen všem možnostem._
 
-  
+</section>
+
+<section>
 
 _Pomník mistra Jana Husa na Staroměstském náměstí byl obsypán mladými; zdálo se, že je odlit z lidských těl._
 
@@ -6402,7 +6540,9 @@ _Z hlubiny času jsem zaslechl hlas jiného mrtvého, který byl s léty čím
 
 _HUMANITA NENÍ SENTIMENTALITA, ALE PRÁCE A OPĚT PRÁCE!_
 
-  
+</section>
+
+<section>
 
 _Normalizace pokračovala, obdivuhodná i deprimující. Bylo spravedlivé říci, že od srpnového tajfunu až do této chvíle zaručovali kapitáni československého korábu bezpečnost všem cestujícím, kteří se rozhodli setrvat na palubě. Srovnání s jarními nadějemi bylo ovšem smutné. Stačilo přečíst si slovenskou Pravdu, která vyšla z rotaček ještě v noci na 21. srpen, s projevem doktora Gustáva Husáka ke ždiarským hutníkům._
 
@@ -6426,7 +6566,9 @@ _Ráno jsem pocítil pro změnu pohnutí sám; schůzi ústředního výboru Sva
 
 _Týž den složili Šik i Goldstücker poslanecký slib v České národní radě. Od té chvíle se dalo jen s námahou tvrdit, že jsou emigranti a zrádcové národa. V pátek, den před pohřbem, oba profesoři opět odjeli na neurčito, aby se jejich přítomnost nestala příčinou nových následků._
 
-  
+</section>
+
+<section>
 
 _Déšť se změnil v liják, ale nikdo neměl nejmenší chuť roztáhnout deštník. Říkalo to mnoho. Pohřeb byl současně demonstrací síly. Naše nejtěžší zbraň se jmenovala paličatost. Přivíral jsem oči, do kterých mi stékala dešťová voda. V Pařížské jsem mimoděk zvedl hlavu. Spatřil jsem obraz, který nezapomenu nikdy. Za všemi okny vznosných secesních činžáků hořely svíčky. Mnohé z nich držely v ruce děti._
 
@@ -6444,7 +6586,9 @@ _– Můj milý synu, také proto, abych na to přišel, píšu teď sebezpytnou
 
 _Bylo příznačné, že se nezeptal doma, ale zde. Dokazoval mi tím nejen, že už se s ním dá mluvit, ale dokonce, že se s ním mluvit musí._
 
-  
+</section>
+
+<section>
 
 _Čelo konduktu dospělo k filozofické fakultě, dvaadvacet let poté, co jsem prvně překročil její práh. Orchestr hrál hymnu. Praha znehybněla. Vzpomínal jsem pohřbu Největšího Soudruha a zdálo se mi, že žiju sto let. Místo sirén stále zněl orchestr pražských zvonů. Podobně tu vyzváněly už při popravě českých pánů._
 
@@ -6466,7 +6610,9 @@ _– Český národ nezahyne!_
 
 _Zde je neupravený text:_
 
-  
+</section>
+
+<section>
 
 > _„Vážený pane Kohout,_
 
@@ -6563,3 +6709,5 @@ _Zde je neupravený text:_
 LUDVÍK VACULÍK  
 (V ČLÁNKU O IV. SJEZDU SPISOVATELŮ,  
 LIDOVÉ NOVINY 26. 6. 1997)
+
+</section>
