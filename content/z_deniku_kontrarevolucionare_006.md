@@ -3,6 +3,8 @@ title: ''
 contentType: prose
 ---
 
+<section>
+
 > Kdo pravdu mluví,  
 > hlavu si rozbíjí.  
 > Kdo se bojí smrti,  
@@ -33,3 +35,5 @@ V ČESKÉ OTÁZCE
 
 ALEXANDER DUBČEK  
 V ROZHLASOVÉM PROJEVU PO NÁVRATU Z MOSKVY 27. 8. 1968
+
+</section>
