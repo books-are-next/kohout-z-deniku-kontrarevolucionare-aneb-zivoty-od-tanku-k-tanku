@@ -1,0 +1,194 @@
+{
+  "preview": {
+    "isPreview": false
+  },
+  "title": "Z deníku kontrarevolucionáře",
+  "author": "Pavel Kohout",
+  "publisher": "Městská knihovna v Praze",
+  "edition": "beletrie",
+  "languageCode": "cs",
+  "root": "main",
+  "identifier": "kohout-z-deniku-kontrarevolucionare-634dccc",
+  "revision": "634dccc",
+  "readingOrder": [
+    "promo.html",
+    "z_deniku_kontrarevolucionare_005.html",
+    "z_deniku_kontrarevolucionare_006.html",
+    "z_deniku_kontrarevolucionare_007.html",
+    "z_deniku_kontrarevolucionare_008.html",
+    "z_deniku_kontrarevolucionare_009.html",
+    "colophon.html"
+  ],
+  "generatedAt": {
+    "date": "Sun Jun 19 2022 15:16:03 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1655651763603
+  },
+  "documents": [
+    {
+      "title": "Městská knihovna v Praze",
+      "file": "promo.html",
+      "words": 0,
+      "chars": 0,
+      "ideas": 0,
+      "role": "chapter",
+      "order": 0,
+      "prev": null,
+      "next": "z_deniku_kontrarevolucionare_005.html",
+      "toc": []
+    },
+    {
+      "title": "Z deníku kontrarevolucionáře",
+      "file": "z_deniku_kontrarevolucionare_005.html",
+      "words": 12,
+      "chars": 74,
+      "ideas": 3,
+      "role": "chapter",
+      "order": 1,
+      "prev": "promo.html",
+      "next": "z_deniku_kontrarevolucionare_006.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": null,
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Z deníku kontrarevolucionáře",
+      "file": "z_deniku_kontrarevolucionare_006.html",
+      "words": 90,
+      "chars": 515,
+      "ideas": 23,
+      "role": "chapter",
+      "order": 2,
+      "prev": "z_deniku_kontrarevolucionare_005.html",
+      "next": "z_deniku_kontrarevolucionare_007.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": null,
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Z deníku kontrarevolucionáře",
+      "file": "z_deniku_kontrarevolucionare_007.html",
+      "words": 86237,
+      "chars": 522847,
+      "ideas": 3225,
+      "role": "chapter",
+      "order": 3,
+      "prev": "z_deniku_kontrarevolucionare_006.html",
+      "next": "z_deniku_kontrarevolucionare_008.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": null,
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Autor čtenáři",
+      "file": "z_deniku_kontrarevolucionare_008.html",
+      "words": 1711,
+      "chars": 11112,
+      "ideas": 46,
+      "role": "chapter",
+      "order": 4,
+      "prev": "z_deniku_kontrarevolucionare_007.html",
+      "next": "z_deniku_kontrarevolucionare_009.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "Autor čtenáři",
+          "id": null,
+          "children": [
+            {
+              "index": 1,
+              "level": 2,
+              "name": "I",
+              "id": "i",
+              "children": []
+            },
+            {
+              "index": 2,
+              "level": 2,
+              "name": "II",
+              "id": "ii",
+              "children": []
+            },
+            {
+              "index": 3,
+              "level": 2,
+              "name": "III",
+              "id": "iii",
+              "children": []
+            }
+          ]
+        }
+      ]
+    },
+    {
+      "title": "Ediční poznámka",
+      "file": "z_deniku_kontrarevolucionare_009.html",
+      "words": 50,
+      "chars": 343,
+      "ideas": 3,
+      "role": "chapter",
+      "order": 5,
+      "prev": "z_deniku_kontrarevolucionare_008.html",
+      "next": "colophon.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "Ediční poznámka",
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Tiráž",
+      "file": "colophon.html",
+      "words": 140,
+      "chars": 922,
+      "ideas": 16,
+      "role": "colophon",
+      "order": null,
+      "prev": "z_deniku_kontrarevolucionare_009.html",
+      "next": null,
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "Tiráž",
+          "id": null,
+          "children": []
+        }
+      ]
+    }
+  ],
+  "totals": {
+    "all": {
+      "words": 88247,
+      "chars": 535864,
+      "ideas": 3320
+    },
+    "chapters": {
+      "words": 88100,
+      "chars": 534891,
+      "ideas": 3300
+    }
+  }
+}

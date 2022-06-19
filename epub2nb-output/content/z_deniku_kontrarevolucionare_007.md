@@ -1,5 +1,6 @@
 ---
 title: ''
+hiddenTitle: true
 contentType: prose
 ---
 
@@ -4938,7 +4939,15 @@ _Sázava_
 
 <section>
 
+<div class="centered">
+
+<div class="verse">
+
 _SJEZD SPISOVATELŮ aneb HENDRYCHIÁDA_
+
+</div>
+
+</div>
 
 </section>
 
@@ -4950,7 +4959,15 @@ _Tragikomedie o pěti dějstvích, s prologem a epilogem. (Stručný obsah hr
 
 <section>
 
+<div class="centered">
+
+<div class="verse">
+
 _Osoby a obsazení:_
+
+</div>
+
+</div>
 
 _Tajemník ÚV KSČ, předseda ideologické komise ÚV KSČ.... Jiří Hendrych_
 
@@ -4974,7 +4991,15 @@ _Spisovatelé, překladatelé, kritici a literární vědci....................
 
 _Vesnický lid..............................................................................................................+++_
 
+<div class="centered">
+
+<div class="verse">
+
 _PROLOG_
+
+</div>
+
+</div>
 
 _Sázava nad Sázavou, pozdní odpoledne v neděli 25. 6. 67. Vesnický lid radostně staví rodinné domky, zatímco na polích státního statku hnijí sena. Vane západní vítr, takže jen nemnozí cítí střelný prach ze Středního východu, kde právě dozuřila arabsko-izraelská válka. Spisovatel PK dopsal svůj diskusní příspěvek na sjezd a slézá ze střechy, aby jej přečetl. Činí tak v plavkách pod skupinou bříz. Jeho posluchači jsou bratranec-lékař a jeho žena, s nimiž ho navíc spojuje i délka členství ve straně, dále družstevní rolník pan Kulhánek a Z., která servíruje kávu. Když autor dočte, praví přítomní jednohlasně:_
 
@@ -4982,11 +5007,27 @@ _PŘÍTOMNÍ: Těbůh…!_
 
 _Spisovatel PK si na okamžik představí místo bříz, keřů a trav shromáždění tvůrčích duchů, a místo příbuzných i přátel delegaci ÚV KSČ. Pocítí lehkou závrať a hlavou mu proletí vzpomínka na stovky hodin, které zmarnil v uplynulém desetiletí přípravou jiných diskusních příspěvků, a na řetěz represí i depresí, jež byly jejich jediným ovocem. Rozhlédne se. Všude kolem koná právě zrozené léto hotové zázraky. Tráva, voda, slunce a vzduch hrají velkolepý kvartet. Na střeše čeká rozepsaná hra jako žena, která se právě přestala zdráhat. Pomyslí si, že jeho ochotnické výstupy na politické scéně nemají sebemenší význam; jeho životní cesta je již po léta dlážděna mrtvolkami námětů, které neměl čas napsat. Cítí, že se musí hned teď rozhodnout, chce-li po sobě zanechat několik divadelních příběhů, anebo sbírku jepičích projevů. Rozhodne se na sjezd nejet, což bratranec kvituje s nesouhlasem, pan Kulhánek s porozuměním a Z. s výkřikem radosti. Příbuzní s rolníkem odcházejí. Když je doprovází, najde spisovatel PK ve schránce u branky obálku, která zde tlí patrně již delší čas. Přítel ze Sovětského svazu, jenž ho nenašel v Praze, mu posílá opis dopisu, který adresoval nedávnému sjezdu sovětských spisovatelů Alexandr Solženicyn. Dopis je vášnivým protestem proti cenzuře, která opět hrozí zpřetrhat lidskou komunikaci, což vedlo v minulosti ke zrození nelidského systému, jenž stál sovětskou společnost i celý svět bezpočet talentů. Spisovatel PK jej čte na tmavnoucí zahradě, kterou iluminují lampičky svatojánských broučků. Poselství muže, v jehož díle k němu po tak dlouhé době znovu dolehl hlas velké ruské literatury, ho šokuje. Uvědomuje si přítomnost neviditelného spojení, které přes tisíce verst dává lidem sílu otloukat si opět a opět hlavy pro ideály mladé tisíce let. Z. nese jeho milované jídlo – čočku s rýží – a líčí v dlouhém lyrickém monologu krásy života na venkově. Prolog vrcholí jejím příslibem, že voda bude zítra teplejší než dnes a k obědu zavoní jahodové knedlíky._
 
+<div class="centered">
+
+<div class="verse">
+
 _1\. AKT – EXPOZICE_
+
+</div>
+
+</div>
 
 _Velký sál Ústředního domu dopravy a spojů v Praze na Vinohradech, v pondělí 26. 6. 67 ve 14.12 hodin. Začíná předsjezdová stranická skupina, jež je po mnoha urgencích záměrně svolána tak, aby na ni bylo co nejméně času. Spisovatel PK se pozdravuje s přáteli, které řadu týdnů neviděl. Na všech tvářích se zračí stejná skepse. Na scénu vchází Vedoucí oddělení HAVLÍČEK, který vítá na tribuně Tajemníka HENDRYCHA a Tajemníka BIĽAKA. Tajemník HENDRYCH předčítá dopis, který zasílá stranické skupině předsednictvo ÚV KSČ. Vyplyne z něho, že strana je znepokojena tendencí zbavit vlivu ve Svazu ty spisovatele-komunisty, kteří zastávají pevný stranický postoj, a že proto žádá, aby do nových orgánů nebyli připuštěni lidé zmatení, či dokonce programově vzdálení úsilí naší socialistické společnosti. Poté kritizuje Literární noviny za řadu článků, které byly v poslední době pozastaveny, zejména za pokus spisovatelů Procházky, Lustiga a Klímy otisknout rozhovor, který obhajuje Izrael a snižuje dějinnou úlohu Sjednocené arabské republiky. Hned nato vystoupí spisovatel ŠOTOLA a jako bývalý šéf Literárních novin čte nekonečný seznam zabavených materiálů, z něhož vyplyne, že se vlastně pro každé číslo Literárek musí dělat číslo náhradní. Po něm totéž učiní spisovatel TREFULKA z brněnského Hosta do domu. Spisovatel PROCHÁZKA podá jako vedoucí stranické skupiny Svazu zprávu o činnosti spisovatelů-komunistů mezi III. a IV. sjezdem. Neradostný monolog, který je bilancí krizových situací, vyvolávaných nešťastnými zásahy stranického a státního aparátu, má několik veselých míst, když příkladně prozrazuje, že Marxovy citáty zabavuje v Bratislavě pracovník ministerstva vnitra, jenž se jmenuje Jan Hus. Čte také dopis spisovatele-nekomunisty Václava Havla, který žádá, aby se Svaz stal společným garantem spisovateli Janu Benešovi, s nímž má být zahájen politický proces. Spisovatel VACULÍK k vystoupení Tajemníka HENDRYCHA namítne, že nechápe, proč by občané nemohli kritizovat činnost své vlády včetně její zahraniční politiky. Spisovatel LUSTIG čte dopis, který zaslal vedení strany spolu se spisovatelem Procházkou a šachovým velmistrem Pachmanem. Praví se v něm, že účelná a principiální politika socialistické země vůči Střednímu východu by měla spočívat v podpoře progresivních sil na té i oné straně. Připomíná se i arabská doktrína fyzické likvidace Izraele, jež je u nás zamlčována. Spisovatel HANUŠ kritizuje redakci Literárek, že negativně ovlivňuje činnost celého Svazu. Vyzván hlasem ze sálu, aby mluvil konkrétně, požádá o čtvrt hodiny času, aby si to připravil. Vedoucí oddělení HAVLÍČEK naznačí, že je zde vyvíjena frakční činnost, ale naštěstí jsou lidé, kteří chodí na ÚV strany a informují nás o tom. Spisovatel PK, ačkoliv, jak prohlásí, není milovaným dítkem Literárek, odmítne výhrady spisovatele Hanuše jako nepodložené. Po několika dalších vystoupeních je krátká přestávka. V druhém obraze vystoupí úvodem Vedoucí oddělení HAVLÍČEK. Kritiku velkého počtu cenzurovaných článků odmítne s poukazem, že to zaviňuje několik jednotlivců, kteří schválně píší tak, že musí být stále cenzurováni. Pak navrhne ukončit diskusi, neboť je nutno připravit kandidátku. Šéfredaktor JUNGMANN však žádá, aby stranická skupina zaujala stanovisko k dopisu spisovatele Václava Havla a k obvinění redakce Literárních novin. Žádá dále, aby Vedoucí oddělení HAVLÍČEK vysvětlil, kdo si chodí stěžovat na ÚV strany a na koho. Vedoucí oddělení to odmítne, protože s tím má špatné zkušenosti. Tajemník HENDRYCH vysloví podiv, že nikdo zatím nehovořil k dopisu předsednictva strany. Pokud jde o dotaz šéfredaktora Jungmanna, Tajemník HENDRYCH neví, zda chodíme se zavřenýma očima, anebo je máme otevřené. Co se kandidátky týče, není třeba taktizovat, neboť všichni víme, jak věci stojí. Spisovatel ŠPITZER navrhne usnést, aby orgány Svazu jednaly o garanci za spisovatele Jana Beneše, v souhlase s platnými zákony. Ozve se potlesk. Začíná diskuse o kandidátce. Spisovatel ŠULEŘ žádá, ať mu šéfredaktor Jungmann promine, že v kandidátce je zřetelný skupinový zájem Literárních novin. Spisovatel HANUŠ navrhne vyřadit z ní Jungmanna, Klímu a Vaculíka. U spisovatele Klímy se mu nelíbila jeho zákulisní činnost. Spisovatel KLÍMA žádá o bližší popis své zákulisní činnosti. Spisovatel HANUŠ řekne, že není jeho povinností popisovat činnost. Spisovatele Klímu prostě nebude volit. Spisovatel Vaculík je hodný člověk, napsal pěknou knížku, ale nemá dost zkušeností. Spisovatel KLÍMA trvá na tom, aby byla jeho zákulisní činnost specifikována. Spisovatel HANUŠ opravuje, aby to spisovatele Klímu nebolelo, to, co říkal, a uvádí jako jediný důvod, že se mu nelíbila jeho činnost. HLAS ZE SÁLU shrnuje, že šlo tedy o činnost bez zákulisí. Na stole je už vedle původně připravených 45 návrhů dalších 26 z pléna. Spisovatel PTÁČNÍK upozorňuje, že volby budou nesnadné a že by se toho snad jako zkušený svazový funkcionář ujal. Vedoucí oddělení HAVLÍČEK hrdě prohlásí, že řízením schůze byl stranou pověřen on. Záhy se mu podaří vyvolat neobyčejný zmatek. Hlasuje se zdvižením ruky, o každém zvlášť. Skrutátoři hlásí výsledky ke stolu volební komise. Časem se ukazuje, že právě kandidáti, na nichž má strana největší zájem, dostávají nejméně hlasů. Tajemník HENDRYCH opouští židli na tribuně, kterou ozdobil svým sakem, a v bílé košili doplněné kšandami kontroluje přímo u stolku volební komise, zda se nešvindluje. Vzdor tomu nepříznivý vývoj pokračuje. Završí jej spisovatel PK, když navrhne, aby byla kandidována spisovatelka Smetanová, neboť nám hrozí, že Svazu povládne nudný spolek mužů. Každý v sále ví, že jmenovaná je především kurážná žena velmi pokrokových názorů. Je zvolena manifestačně. Vedoucí oddělení HAVLÍČEK unaveně prohlásí, že volby skončily, a navrhne, aby se stranická skupina usnesla, že spisovatelé-komunisté přispějí na sjezdu k pozitivnímu řešení otázek dalšího rozvoje čs. literatury v duchu rezoluce XIII. sjezdu KSČ. Pak ochraptěle děkuje za účast a končí schůzi již v úterý v 0.09 hodin._
 
+<div class="centered">
+
+<div class="verse">
+
 _II. AKT – KOLIZE_
+
+</div>
+
+</div>
 
 _Tamtéž, v úterý 27. 6. 67. Vstoupí všichni předchozí, k nimž se připojí spisovatelé-nekomunisté a nečetní hosté. Novináři jsou připuštěni v omezeném počtu a po prozkoumání, jsou-li domácího původu. Spisovatelé zasmušile pijí kávu a na základě včerejších zkušeností se vzájemně utvrzují, že dokonale zabijí tři dlouhé dny v krátkém životě. Spisovatel PK přesto odevzdá přihlášku do diskuse. I když si je jist, že se zbytečně a sám řítí do maléru, chce aspoň takto soukromě pozdravit osamělého ruského kolegu v Kazani. Hodiny ukazují 10.06. Na scénu vyjde včerejší předsednictvo. Po zahájení se ujímá slova spisovatel KUNDERA. Ví se, že toto úvodní slovo opracovávala strana řadu měsíců. Text, který posléze slíbil přečíst, aniž by se musel stydět, zhubl na pouhé dvě stránky. Když však již stojí na tribuně, požádá, aby mohl připojit několik slov sám za sebe. Pak, zcela nečekaně, rozvine vzrušující úvahu o smyslu kultury malého národa, jehož existence nebyla nikdy samozřejmostí. Poté podává brilantní studii vandalství, k němuž přičítá i zakazování uměleckých děl, která přerostla lidský obzor posuzovatelů._
 
@@ -5018,7 +5059,15 @@ _Předsedající PTÁČNÍK: Soudruzi, i když váš potlesk byl jakýmsi vyjá
 
 _Hlasuje se. Jeden proti, dva se zdrželi. Spisovatel PK jde znovu na tribunu a začne číst. Asi po minutě ho vyruší šum. Čte a přitom zahlédá, že se stovky párů očí stáčejí doprava od něho. Čte a přitom už jasně vidí, jak se za předsednickým stolem zvedá bílá košile obepnutá šlemi, jak se mihne sako stržené z opěradla židle, jak se Tajemník HENDRYCH ubírá mezi dvěma řadami předsednických stolů k lítacím dveřím, čte a slyší jeho dušený, rozčilený hlas: VŠECKO PROSERETE…! Pak se dveře zahoupají, odchod je dovršen, krize vypukla, krize, jaká tu nebyla, odchod, jaký tu nebyl, ale jemu zbývá přečíst srozumitelně a nahlas dalších pět stránek dopisu. Jeho ruskému autorovi patří pak dlouhý potlesk solidarity a spisovatel PK zatím odchází ze sálu, na chodbě se přidrží zábradlí, jelikož si náhle připadl příliš lehkým, pak pohlédne dolů, dostane závrať, která se ho ostatně zmocňuje vždy a všude již od výše jednoho metru, podaří se mu dojít k výčepu a poručí si vhodně jednu vodku stoličnuju. Zbytek dne absolvuje jako v mlze. Čtenáři se odkazují na úplný text této hry, nazvaný Protokol IV. sjezdu Svazu spisovatelů, jenž vyšel v tu- i cizozemsku, samozřejmě bez Prologu, Epilogu, I. a IV. aktu._
 
+<div class="centered">
+
+<div class="verse">
+
 _III. AKT – KRIZE_
+
+</div>
+
+</div>
 
 _Spisovatel PK je přikován k pravé věži Svatého Víta. Třikrát denně přilétá tlustý, jako člověk velký a tlustý sršeň v bílé košili, s plandavými kšandami a s očima jako semafory, v nichž planou rudá písmena H. Svůj sosák v podobě vývrtky proboří skřípavě lebkou do jeho mozku a vysaje mlaskavě dvě třetiny cukající se masy, která třikrát denně dorůstá, načež pokaždé, jako by plnil pekelný úkol, zasyčí_
 
@@ -5064,7 +5113,15 @@ _VACULÍK: Asi jo. Asi něco, po čem bych dneska usnul, a pak něco, po čem b
 
 _Spisovatel PK volá Z., aby okamžitě sehnala a dovezla jedno valium a jedno librium. Přichází, a na její maxiklobouk i minisukni se bude i po letech vzpomínat jako na jediný záblesk naděje. Diskuse ještě pokračuje, ale málokdo vnímá, o čem se mluví. Pouze jediná informace pronikne do vědomí účastníků. Vedoucí oddělení HAVLÍČEK oznámí, že se zítra ráno v 9.00 koná mimořádná stranická skupina delegátů-komunistů. Ostatní jsou žádáni, aby se dostavili o hodinu později. Striktně limitovaná lhůta je první předzvěstí katastrofy. Následuje hlavní přestávka._
 
+<div class="centered">
+
+<div class="verse">
+
 _IV. AKT – PERIPETIE_
+
+</div>
+
+</div>
 
 _Tamtéž, 29. června 67 v 9.07 hodin ráno. Osoby z I. aktu jsou u vchodu pečlivě kontrolovány. Spisovatelé-nekomunisté popíjejí na chodbě za zavřenými dveřmi kávu a nespokojeně hlučí. Spisovatel PK se vzhledem k situaci konečně oholil. Tajemník HENDRYCH opět usedl na opuštěnou židli._
 
@@ -5148,7 +5205,15 @@ _VOLANSKÁ: Mám dotaz, zda soudruzi, kteří se vzdali kandidatury, zůstávaj�
 
 _Tajemník BIĽAK (nikoho se neptá): Ano! Prosím, aby se to pak vydiskutovalo v komisi! Kdo je pro? (137) Kdo je proti? (12) Kdo se zdržel? (34) Je tedy jasná převaha soudruhů, kteří hlasovali pro změněnou kandidátku. Prosím, aby bylo vzato v úvahu, že stranická disciplína zavazuje nás komunisty vždy, abychom se podřídili většině. Většina komunistů byla pro tuto změnu, aby se takto na sjezdu při volbě hlasovalo. Tím končím tuto stranickou skupinu. (Hodiny ukazují 10.39.)_
 
+<div class="centered">
+
+<div class="verse">
+
 _V. AKT – KATASTROFA_
+
+</div>
+
+</div>
 
 _Do sálu jsou připuštěni spisovatelé-nekomunisté. Nemusejí se příliš ptát. Nálada je příslušně katastrofální. Kolem každého ze čtyř vyškrtnutých je shluk přátel. Jedni vysvětlují, že hlasovali pro tento kompromis, aby zachránili Svaz, jeho nakladatelství, noviny a Literární fond. Jiní to nazývají hromadnou morální sebevraždou. Tak brutální manipulace se nedopustil ani nebožtík ministr Kopecký po II. sjezdu v roce 56. Nikdo není schopen rozhodnout, kdo má pravdu. V 10.57 začne poslední zasedání. Naposled promlouvá Tajemník HENDRYCH. Na rozdíl od druhého dějství je teď jeho řeč stručná a tvrdá. Sjezd byl zmanipulován a zneužit. Strana očekává, že z toho závěrečné jednání vyvodí důsledky, bez kterých není pro literaturu východiska. Při diskusi o pozměněné kandidátce vyjde z řad nekomunistů znovu návrh, aby na ni byli zařazeni spisovatelé Havel, Klíma, Vaculík a PK. Komunisté, vázaní svým usnesením, hlasují disciplinovaně proti. Tajné volby pak kandidátku potvrdí. Spisovatel PK vyjde před závěrem na chodbu a po třech dnech narazí na svého dávného přítele. P. je viditelně zdrcen, neboť se ve své funkci na přípravě sjezdu významně podílel. Stalo se věcí jeho cti přesvědčit nás o potřebách strany, ale i hledat kompromis, aby za žádnou cenu nedošlo ke konfliktu. Nyní vypadá jako člověk, kterému utekla milovaná žena s nejlepším přítelem. PK ho nicméně zastaví._
 
@@ -5162,11 +5227,27 @@ _PROCHÁZKA: Vážení přátelé, vyslovit jakýkoli soud na konci našeho jedn
 
 _Z nedostatku druhého schodiště odcházejí vítězové i poražení středem._
 
+<div class="centered">
+
+<div class="verse">
+
 _EPILOG_
+
+</div>
+
+</div>
 
 _Opět na Sázavě, opět večer. Spisovatel PK, dosud v černém, položí sklíčen gramofon pod břízy, aby celá zahrada zahrála Malou noční hudbu. Třebaže neuposlechl dobře míněné rady, dostane se mu slíbených jahodových knedlíků. Velkou chuť na ně nemá. Padá opona noci._
 
+<div class="centered">
+
+<div class="verse">
+
 _KONEC_
+
+</div>
+
+</div>
 
 * * *
 
@@ -5363,11 +5444,27 @@ _Hamburk_
 
 <section>
 
+<div class="centered">
+
+<div class="verse">
+
 CESTA DO HAMBURKU aneb UKAŽTE MU NÁSTROJE!
+
+</div>
+
+</div>
 
 Filmová synopse (Poznámka: Film je zamýšlen jako nevšední kompilace crazy komedie s grand Guignolem; inscenován má být proto smrtelně vážně ve scénách groteskních a naopak frivolně v sekvencích smrtelně vážných.)
 
+<div class="centered">
+
+<div class="verse">
+
 _TITULEK: ÚTERÝ_
+
+</div>
+
+</div>
 
 _OBRAZ 1 Exteriér – den. Blíží se velkoletadlo Bristol-Britannia._
 
@@ -5419,7 +5516,15 @@ _– Tvá milovaná strana, praví Z., – je nejzábavnější spolek pod slun
 
 <section>
 
+<div class="centered">
+
+<div class="verse">
+
 _TITULEK: STŘEDA_
+
+</div>
+
+</div>
 
 </section>
 
@@ -5503,7 +5608,15 @@ _OBRAZ 31 Exteriér – noc. PK a Z. házejí do kufrů zvlhlé prádlo i ša
 
 <section>
 
+<div class="centered">
+
+<div class="verse">
+
 _TITULEK: ČTVRTEK_
+
+</div>
+
+</div>
 
 </section>
 
@@ -5517,7 +5630,15 @@ _OBRAZ 33 Reál – podvečer. Doma čeká PK překvapení v podobě dvou muž
 
 <section>
 
+<div class="centered">
+
+<div class="verse">
+
 _TITULEK: PÁTEK_
+
+</div>
+
+</div>
 
 </section>
 
@@ -5551,7 +5672,15 @@ _OBRAZ 39 Reál – noc. PK k sobě pozve odvěkého přítele a snaží se o
 
 <section>
 
+<div class="centered">
+
+<div class="verse">
+
 _TITULEK: SOBOTA_
+
+</div>
+
+</div>
 
 </section>
 
