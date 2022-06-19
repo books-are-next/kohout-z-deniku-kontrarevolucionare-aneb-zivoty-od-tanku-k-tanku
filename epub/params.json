@@ -23,14 +23,14 @@
       "br": "",
       "brBefore": ".+12.0\n.+12.12\n.+12.0.\n.+12.12.\ne.bookversebezpredsazeni.*pred.*\ne.bookodsazeniodstavce.*pred.*",
       "brAfter": ".+0.12\n.+12.12\n.+0.12.\n.+12.12.\ne.bookversebezpredsazeni.*za.*\ne.bookodsazeniodstavce.*za.*",
-      "blockquote": "MLP.DENIK\nMLP.dopis.*\nMLP.citat\nMLP.prima.rec\ne.bookdopis\ne.bookprozatextkurzivadoprava",
+      "blockquote": "MLP.DENIK\nMLP.citat\nMLP.prima.rec\ne.bookdopis\ne.bookprozatextkurzivadoprava",
       "figure": "MLP.obrazky.*\nmlpobrazky",
+      "centered": ".*uprostred.*",
+      "verse": "MLP.verse.*",
       "em": ".*kurziva.*\n.*-I-.*\n.*-I\n.*_I_.*\n.*_I\nMLP.venovani\nMLP.verse.*\nMLP.titulka.prekladatel\nMLP.pozn.pod.carou\nMLP.scenicke.poznamky\ne.booktextvenovani.*\nmlpvenovani.*\nmlpversei",
       "strong": "MLP.tiraz.autor.a.nazev\nMLP.tiraz.podnazev\nMLP.licence.paragraf\n.*tucne.*\n.*tucna.*\n.*-B-\n.*-B\n.*_B_\n.*_B\nMLP.prima.rec\nMLP.prima.rec.bez.mezery\ne.booktirazautoradilo\nmlptextb\nmlptirazautoranazev",
       "remove": "",
-      "ignore": "",
-      "centered": ".*uprostred.*",
-      "verse": "MLP.verse.*"
+      "ignore": ""
     },
     "structure": [
       {
@@ -96,8 +96,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": true,
-            "children": [],
-            "title": "Věnování"
+            "title": "Věnování",
+            "children": []
           },
           {
             "filename": "z_deniku_kontrarevolucionare_006.md",
@@ -109,8 +109,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": true,
-            "children": [],
-            "title": "Citáty"
+            "title": "Citáty",
+            "children": []
           },
           {
             "filename": "z_deniku_kontrarevolucionare_007.md",
@@ -122,8 +122,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": true,
-            "children": [],
-            "title": "Z deníku kontrarevolucionáře"
+            "title": "Z deníku kontrarevolucionáře",
+            "children": []
           },
           {
             "filename": "z_deniku_kontrarevolucionare_008.md",
@@ -135,8 +135,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": false,
-            "children": [],
-            "title": "Autor čtenáři"
+            "title": "Autor čtenáři",
+            "children": []
           },
           {
             "filename": "z_deniku_kontrarevolucionare_009.md",
@@ -148,8 +148,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": false,
-            "children": [],
-            "title": "Ediční poznámka"
+            "title": "Ediční poznámka",
+            "children": []
           },
           {
             "filename": "z_deniku_kontrarevolucionare_010.md",
@@ -343,6 +343,6 @@
       "user": "books-are-next",
       "repo": "kohout-z-deniku-kontrarevolucionare-aneb-zivoty-od-tanku-k-tanku"
     },
-    "generatedAt": 1654948493000
+    "generatedAt": 1655651657941
   }
 }
