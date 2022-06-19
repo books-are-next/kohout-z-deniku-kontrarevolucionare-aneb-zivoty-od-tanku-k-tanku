@@ -9,67 +9,67 @@ contentType: prose
 Středa 21. srpna 1968  
 (z deníku turisty – pokračování)
 
-> San Marino
+San Marino
 
-> Připoutali mne ke sloupu v obrovském sále. Strop jsem nedohlédl. Kolem dokola splývaly těžké sametové závěsy. Jeden z nich se nehlučně rozhrnul. Ozval se mnohohlasý vzdech. Nebylo pochyb: byl jsem na jevišti.
+Připoutali mne ke sloupu v obrovském sále. Strop jsem nedohlédl. Kolem dokola splývaly těžké sametové závěsy. Jeden z nich se nehlučně rozhrnul. Ozval se mnohohlasý vzdech. Nebylo pochyb: byl jsem na jevišti.
 
-> Uprostřed první řady jsem spíš vytušil, než spatřil tvář svého otce.
+Uprostřed první řady jsem spíš vytušil, než spatřil tvář svého otce.
 
-> Chtělo se mi vykřiknout, ale roubík udusil můj hlas. Ne­dopřejí mně tedy ani milost posledního slova!
+Chtělo se mi vykřiknout, ale roubík udusil můj hlas. Ne­dopřejí mně tedy ani milost posledního slova!
 
-> Z portálu vyšel černě oděný muž. Nesl v ruce rozpálený meč.
+Z portálu vyšel černě oděný muž. Nesl v ruce rozpálený meč.
 
-> Pokoření, vztek i zoufalství, všechno se slilo v slzu. Kontury předmětů i postav se zmnohonásobily. Posledním pohledem jsem uviděl svět, jak ho údajně vídala ta známá moucha ze školních diagramů. Pak se meč přiblížil k mým očím a obraz explodoval v žáru a v bolesti.
+Pokoření, vztek i zoufalství, všechno se slilo v slzu. Kontury předmětů i postav se zmnohonásobily. Posledním pohledem jsem uviděl svět, jak ho údajně vídala ta známá moucha ze školních diagramů. Pak se meč přiblížil k mým očím a obraz explodoval v žáru a v bolesti.
 
-> Trhl jsem hlavou. Žár uhasl, bolest utichla. Otevřel jsem oči. Vedle mne propaloval podušku jeden z paprsků, vnikajících sem mezi lištami stažené žaluzie. Ranní slunce muselo stát přímo proti pokoji.
+Trhl jsem hlavou. Žár uhasl, bolest utichla. Otevřel jsem oči. Vedle mne propaloval podušku jeden z paprsků, vnikajících sem mezi lištami stažené žaluzie. Ranní slunce muselo stát přímo proti pokoji.
 
-> Na tváři mi lepkavě schly skutečné slzy. Zachránily mne, jako kdysi Michala Strogoffa. Proč se sepnuly neviditelné kon­takty mozku, aby po takových letech odvysílaly ten dávno zasutý příběh? Otočil jsem hlavu, abych se zeptal Vykladačky snů. Ležela vedle mne jako krásná balzamovaná mrtvola. Bylo jí v noci zřejmě horko, odhodila prostěradlo.
+Na tváři mi lepkavě schly skutečné slzy. Zachránily mne, jako kdysi Michala Strogoffa. Proč se sepnuly neviditelné kon­takty mozku, aby po takových letech odvysílaly ten dávno zasutý příběh? Otočil jsem hlavu, abych se zeptal Vykladačky snů. Ležela vedle mne jako krásná balzamovaná mrtvola. Bylo jí v noci zřejmě horko, odhodila prostěradlo.
 
-> Překročil jsem ji a sestoupil k oknu, abych vytáhl žaluzii. Otevřenými dveřmi proudil mezi lištami relativně chladný vzduch. Těšíval jsem se v Itálii celé dny jako narkoman na tyhle ranní minuty, kdy se dalo trochu dýchat.
+Překročil jsem ji a sestoupil k oknu, abych vytáhl žaluzii. Otevřenými dveřmi proudil mezi lištami relativně chladný vzduch. Těšíval jsem se v Itálii celé dny jako narkoman na tyhle ranní minuty, kdy se dalo trochu dýchat.
 
-> Žaluzie se nepohnula.
+Žaluzie se nepohnula.
 
-> Začal jsem zkoumat systém. Popruh mizel v horní části dveří. Potahoval jsem. Jemně, pak silněji. Žaluzie vzdorovala.
+Začal jsem zkoumat systém. Popruh mizel v horní části dveří. Potahoval jsem. Jemně, pak silněji. Žaluzie vzdorovala.
 
-> Přinesl jsem si k oknu židli. I když jsem se vypnul na špičky, chyběly mi dva tři centimetry. Začala se mne zmocňovat nevole. Ráno je pro mne nesmírně důležité. První minuty roz­hodují o celém dnu.
+Přinesl jsem si k oknu židli. I když jsem se vypnul na špičky, chyběly mi dva tři centimetry. Začala se mne zmocňovat nevole. Ráno je pro mne nesmírně důležité. První minuty roz­hodují o celém dnu.
 
-> Musel jsem jít pro stůl. Jako vždycky se na něm válely její věci. Prosil jsem každý večer, aby nechávala stůl volný. Stoly zavalené předměty mi připomínají psací stůl a s ním všechny zmarněné hodiny posledních let.
+Musel jsem jít pro stůl. Jako vždycky se na něm válely její věci. Prosil jsem každý večer, aby nechávala stůl volný. Stoly zavalené předměty mi připomínají psací stůl a s ním všechny zmarněné hodiny posledních let.
 
-> Bral jsem do ruky: její kabelku, její hřeben, její cigarety, její tužku a neodeslané pohlednice přibývající s každým městem, její ronson a dva poloprázdné multifilly, její peněženku, ze které se v noci vysypaly české, italské i rakouské mince, její pudřenku zalepenou záhadnou hmotou, kterou si koupila, aby z ní mohla vyfukovat balonky, její blok počmáraný malými karikaturami s realistickými portréty jižních krasavců, její rozbité hodinky a nakousnutý banán.
+Bral jsem do ruky: její kabelku, její hřeben, její cigarety, její tužku a neodeslané pohlednice přibývající s každým městem, její ronson a dva poloprázdné multifilly, její peněženku, ze které se v noci vysypaly české, italské i rakouské mince, její pudřenku zalepenou záhadnou hmotou, kterou si koupila, aby z ní mohla vyfukovat balonky, její blok počmáraný malými karikaturami s realistickými portréty jižních krasavců, její rozbité hodinky a nakousnutý banán.
 
-> Položil jsem to všecko na zem.
+Položil jsem to všecko na zem.
 
-> Vystoupil jsem na stůl a snažil se odklopit dřevěný rám, abych se dostal ke kladkám. Byl přibit hřebíky.
+Vystoupil jsem na stůl a snažil se odklopit dřevěný rám, abych se dostal ke kladkám. Byl přibit hřebíky.
 
-> Začal jsem se potit o hodinu dřív než jindy a moje nálada se valem horšila. Vší silou jsem trhal za popruhy. Ozval se smích.
+Začal jsem se potit o hodinu dřív než jindy a moje nálada se valem horšila. Vší silou jsem trhal za popruhy. Ozval se smích.
 
-> Musela mne pozorovat už delší chvíli.
+Musela mne pozorovat už delší chvíli.
 
-> – Čemu se směješ? zeptal jsem se mrazivě.
+– Čemu se směješ? zeptal jsem se mrazivě.
 
-> – Nevypadáš nejlíp.
+– Nevypadáš nejlíp.
 
-> – Nepořádám tu šau, vysvětlil jsem jí, – snažím se pouze opravit žaluzii, kterou zřejmě spouštěl člověk bez inteligence a citu.
+– Nepořádám tu šau, vysvětlil jsem jí, – snažím se pouze opravit žaluzii, kterou zřejmě spouštěl člověk bez inteligence a citu.
 
-> – Nemáš pocit, žes ji spouštěl ty?
+– Nemáš pocit, žes ji spouštěl ty?
 
-> Pomalu, ale jistě se mne zmocňoval hněv.
+Pomalu, ale jistě se mne zmocňoval hněv.
 
-> – Kladeš sugestivní otázku, ačkoliv si jistě vzpomínáš, že jsme sem přišli před půlnocí, když jsme v sobě měli dva litry frascati. V podobných situacích to obvykle nebývám já, kdo ztrácí přehled o svém konání. Najal jsem tenhle pokoj na zá­kladě ujištění, že má nejlepší vyhlídku. Neměl jsem tedy nejmenší důvod rozbíjet žaluzie. Logika věci ukazuje daleko spíš na tebe, protože rozbiješ téměř všecko, na co kdy sáhneš!
+– Kladeš sugestivní otázku, ačkoliv si jistě vzpomínáš, že jsme sem přišli před půlnocí, když jsme v sobě měli dva litry frascati. V podobných situacích to obvykle nebývám já, kdo ztrácí přehled o svém konání. Najal jsem tenhle pokoj na zá­kladě ujištění, že má nejlepší vyhlídku. Neměl jsem tedy nejmenší důvod rozbíjet žaluzie. Logika věci ukazuje daleko spíš na tebe, protože rozbiješ téměř všecko, na co kdy sáhneš!
 
-> – Pokud rozvíjíš své teorie, řekla, – neměl bys to aspoň dělat na stole a nahý, protože jsou pak ještě komičtější.
+– Pokud rozvíjíš své teorie, řekla, – neměl bys to aspoň dělat na stole a nahý, protože jsou pak ještě komičtější.
 
-> Nato jsem sestoupil se stolu a řekl po dlouhé době několik neslušných slov. Ten den to měl prostě v sobě. Po dlouhé době se mnou přestala mluvit.
+Nato jsem sestoupil se stolu a řekl po dlouhé době několik neslušných slov. Ten den to měl prostě v sobě. Po dlouhé době se mnou přestala mluvit.
 
-> Pak jsme se začali uraženě oblékat. Na ranní něžnosti a vy­právění snů už nebylo ani pomyšlení. Za trest jsem nám neobjednal snídani.
+Pak jsme se začali uraženě oblékat. Na ranní něžnosti a vy­právění snů už nebylo ani pomyšlení. Za trest jsem nám neobjednal snídani.
 
-> Když si malovala oči, pokusil jsem se ještě jednou vytáhnout žaluzie. Marně. Přestože ráno zásadně nekouřím, zapálil jsem si cigaretu a snažil se alespoň mezi lištami zahlédnout něco z krajiny. Škvíry byly však zcela minimální. Z vyhlášeného panoramatu pod sanmarinskou skálou byl k spatření jen ubohý výřez, který by neuspokojil ani řidiče tanku.
+Když si malovala oči, pokusil jsem se ještě jednou vytáhnout žaluzie. Marně. Přestože ráno zásadně nekouřím, zapálil jsem si cigaretu a snažil se alespoň mezi lištami zahlédnout něco z krajiny. Škvíry byly však zcela minimální. Z vyhlášeného panoramatu pod sanmarinskou skálou byl k spatření jen ubohý výřez, který by neuspokojil ani řidiče tanku.
 
-> Ohlédl jsem se. Byla už hotová, seděla na posteli a mlčky se dívala před sebe. Jako obvykle mi jí bylo náhle líto. Přisedl jsem k ní a objal ji kolem ramen.
+Ohlédl jsem se. Byla už hotová, seděla na posteli a mlčky se dívala před sebe. Jako obvykle mi jí bylo náhle líto. Přisedl jsem k ní a objal ji kolem ramen.
 
-> – Tak už se nezlob, řekl jsem, – musíš přece uznat, že je to i tvoje vina. Neměla ses mi posmívat, když jsem se snažil udělat ti radost. A už vůbec jsi neměla tvrdit, že jsem tu blbou žaluzii rozbil já. Vždyť jsme sem nahoru vyjeli právě proto, abych ti ukázal vyhlídku. Vzal ji čert! Přece si nezkazíme celý den kvůli blbé žaluzii!
+– Tak už se nezlob, řekl jsem, – musíš přece uznat, že je to i tvoje vina. Neměla ses mi posmívat, když jsem se snažil udělat ti radost. A už vůbec jsi neměla tvrdit, že jsem tu blbou žaluzii rozbil já. Vždyť jsme sem nahoru vyjeli právě proto, abych ti ukázal vyhlídku. Vzal ji čert! Přece si nezkazíme celý den kvůli blbé žaluzii!
 
-> – Ano, řekla, – celý život nám slibujete nádherné vyhlídky, a vždycky vám do toho přijde nějaká blbá žaluzie.
+– Ano, řekla, – celý život nám slibujete nádherné vyhlídky, a vždycky vám do toho přijde nějaká blbá žaluzie.
 
 * * *
 
@@ -182,73 +182,73 @@ _Nehádám se s ní. Je to detektivka s otevřeným koncem. Beru-li však v �
 Středa 21. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Perugia
+Perugia
 
-> Do Perugie jsme na sebe nepromluvili. Na náměstí jsem zaparkoval. Bylo kruté poledne, obyvatelé zmizeli beze stopy v oné druhé Itálii, kterou si představuji jako klimatizovaný ristorante u řeky Styxu, z něhož vyjdou teprve k večeru na sběr sušených turistů. Vzdor tomu jsem schválně usedl k jednomu z malých stolků stojících na rozpálené dlažbě hned u zdi paláce dei Priori. Po chvíli se malátně dostavil černovlasý číšník.
+Do Perugie jsme na sebe nepromluvili. Na náměstí jsem zaparkoval. Bylo kruté poledne, obyvatelé zmizeli beze stopy v oné druhé Itálii, kterou si představuji jako klimatizovaný ristorante u řeky Styxu, z něhož vyjdou teprve k večeru na sběr sušených turistů. Vzdor tomu jsem schválně usedl k jednomu z malých stolků stojících na rozpálené dlažbě hned u zdi paláce dei Priori. Po chvíli se malátně dostavil černovlasý číšník.
 
-> – Budeš jíst? zeptal jsem se jí chladně.
+– Budeš jíst? zeptal jsem se jí chladně.
 
-> Zavrtěla hlavou. Musela mít příšerný hlad, stejně jako já.
+Zavrtěla hlavou. Musela mít příšerný hlad, stejně jako já.
 
-> – Mezzolitre, přikázal jsem.
+– Mezzolitre, přikázal jsem.
 
-> – Va bene, signore.
+– Va bene, signore.
 
-> Podrobnosti ho nezajímaly. Piazza del Quatro novembre, rámovaná přísnými středověkými portály, vypadala jako obrovská přesvícená filmová kulisa. Občas přejel od portálu k portálu prázdný autobus, jinak byla tichá a liduprázdná, dokonale připravená k příštímu záběru. Z fontány Maggiore pili holubi. Chyběl už jenom svatý Bernhardin z nedaleké Sieny, aby začal vyvolávat své modlitby za mír.
+Podrobnosti ho nezajímaly. Piazza del Quatro novembre, rámovaná přísnými středověkými portály, vypadala jako obrovská přesvícená filmová kulisa. Občas přejel od portálu k portálu prázdný autobus, jinak byla tichá a liduprázdná, dokonale připravená k příštímu záběru. Z fontány Maggiore pili holubi. Chyběl už jenom svatý Bernhardin z nedaleké Sieny, aby začal vyvolávat své modlitby za mír.
 
-> Přinesl naštěstí studené bílé víno. Vypili jsme je naráz. Jako vždy to jen rozpoutalo mou žízeň. Objednal jsem velkou karafu. Zaléval mne pot. A rostla ve mně hořkost, až se provalila.
+Přinesl naštěstí studené bílé víno. Vypili jsme je naráz. Jako vždy to jen rozpoutalo mou žízeň. Objednal jsem velkou karafu. Zaléval mne pot. A rostla ve mně hořkost, až se provalila.
 
-> – Myslím, že bychom si měli promluvit, řekl jsem.
+– Myslím, že bychom si měli promluvit, řekl jsem.
 
-> Pili jsme druhý litr. V opilosti bývala ještě nepřístupnější argumentům, ale už mi to bylo jedno.
+Pili jsme druhý litr. V opilosti bývala ještě nepřístupnější argumentům, ale už mi to bylo jedno.
 
-> – Pokoušel jsem se pět let snášet tvé rozmary a sobectví, ve víře, že jednou musí přestat. Ztratil jsem veletucty hodin a tunu energie, abych ti vyložil nejzákladnější věci. Mohl jsem najít padesát ženských, které by bez váhání opustily všecko, aby mohly sdílet můj život, aby mi pomáhaly dělat, co dělám. Nejenže tě to nikdy nenapadlo, tys nevynechala jedinou příležitost, jak mě pokořit. Věděla jsi, že jsem komunista, ještě než jsi ke mně poprvé přišla, věděla jsi to jako všichni. Bylas pět let svědkem, jak se peru o věci, které mi mohly být koneckonců lhostejné. Viděla jsi, jak si natloukám hlavu a komplikuju život, ačkoliv jsem si mohl při své profesi žít jako rudé kníže. Ale nejen to, tys věděla, že to má dokonce smysl, že ta donkichotiáda probouzí řetězovou reakci, že směřuje k naději, která má obsah a tvar. A přece ti to nevadilo, abys při každé idiotské příležitosti neřekla to své svrchované _vy_! Je mi čtyřicet, nemám pleš ani břicho, dvacetileté holky mi píšou milostná psaní. Přesto jsem stačil prožít světovou krizi, Mnichov, okupaci, heydrichiádu, nálety, barikády, Únor, procesy, Dvacátý sjezd i Pražské jaro! Dějiny mají své hráče i diváky. Nevyčítám už dávno nikomu, že se jen dívá. Ale nenávidím diváky, kteří lhostejně přihlížejí zotročování, hladomorům i válkám, aby pak ze svých lóží odsoudili povstalce, že nezaklepali a nepřezuli se do trepek. Tři roky jsem usiloval o vítězství své revoluce. Dvacet let o její čistotu! Dvacet let trval zápas, obtížnější než kterýkoli jiný, protože tu náhle nebyl zákop proti zákopu, protože protivníci měli stejnou minulost, stejný jazyk, stejnou stranickou legitimaci v kapse. Dvacet let trval spor komunistů s komunisty, spor o výslednou tvář revoluce, v němž naši soudruzi u moci použili nejednou jako krajního argumentu šibenice. My jsme tu konfrontaci přijali a my jsme v ní zvítězili. Když jsme našli pevný bod, pro sebe, ale i pro vás, místo uznání opět zvedáte čisté ruce a říkáte nám všem bez rozdílu _vy_! Pět let jsem tě noc co noc objímal, pět let jsi ve mně četla jako v knize, protože jsem tě miloval, protože jsem chtěl, abys mi porozuměla. Po pěti letech jsme si vzdálenější než na začátku. Politika mezi námi leží v posteli jako obnažený meč, a kladeš jej tam ty. Činíš mě zodpovědným za to, že není telecí maso, že vyrábíme špatné boty, že nemůžeš cestovat po světě, kdy a kam se ti zachce. Připisuješ na mé konto rozkopané ulice, padající římsy, nudné noviny, zbabělé poslance a všemohoucí policajty. Beru to jako hozenou rukavici, která mne nutí ještě víc odbíhat od psaní, starat se o věci, do kterých mi koneckonců nic není. Pak jednou, konečně! přijde den, přijde týden, přijde čas, kdy těch dvacet let vydá plody, kdy život znovu začne stát za to, aby se žil. A v tu chvíli se ty, o kterou mi šlo, zvedáš na tribuně s pocitem nudy a hnusu, abys pronesla příměr o blbé žaluzii!
+– Pokoušel jsem se pět let snášet tvé rozmary a sobectví, ve víře, že jednou musí přestat. Ztratil jsem veletucty hodin a tunu energie, abych ti vyložil nejzákladnější věci. Mohl jsem najít padesát ženských, které by bez váhání opustily všecko, aby mohly sdílet můj život, aby mi pomáhaly dělat, co dělám. Nejenže tě to nikdy nenapadlo, tys nevynechala jedinou příležitost, jak mě pokořit. Věděla jsi, že jsem komunista, ještě než jsi ke mně poprvé přišla, věděla jsi to jako všichni. Bylas pět let svědkem, jak se peru o věci, které mi mohly být koneckonců lhostejné. Viděla jsi, jak si natloukám hlavu a komplikuju život, ačkoliv jsem si mohl při své profesi žít jako rudé kníže. Ale nejen to, tys věděla, že to má dokonce smysl, že ta donkichotiáda probouzí řetězovou reakci, že směřuje k naději, která má obsah a tvar. A přece ti to nevadilo, abys při každé idiotské příležitosti neřekla to své svrchované _vy_! Je mi čtyřicet, nemám pleš ani břicho, dvacetileté holky mi píšou milostná psaní. Přesto jsem stačil prožít světovou krizi, Mnichov, okupaci, heydrichiádu, nálety, barikády, Únor, procesy, Dvacátý sjezd i Pražské jaro! Dějiny mají své hráče i diváky. Nevyčítám už dávno nikomu, že se jen dívá. Ale nenávidím diváky, kteří lhostejně přihlížejí zotročování, hladomorům i válkám, aby pak ze svých lóží odsoudili povstalce, že nezaklepali a nepřezuli se do trepek. Tři roky jsem usiloval o vítězství své revoluce. Dvacet let o její čistotu! Dvacet let trval zápas, obtížnější než kterýkoli jiný, protože tu náhle nebyl zákop proti zákopu, protože protivníci měli stejnou minulost, stejný jazyk, stejnou stranickou legitimaci v kapse. Dvacet let trval spor komunistů s komunisty, spor o výslednou tvář revoluce, v němž naši soudruzi u moci použili nejednou jako krajního argumentu šibenice. My jsme tu konfrontaci přijali a my jsme v ní zvítězili. Když jsme našli pevný bod, pro sebe, ale i pro vás, místo uznání opět zvedáte čisté ruce a říkáte nám všem bez rozdílu _vy_! Pět let jsem tě noc co noc objímal, pět let jsi ve mně četla jako v knize, protože jsem tě miloval, protože jsem chtěl, abys mi porozuměla. Po pěti letech jsme si vzdálenější než na začátku. Politika mezi námi leží v posteli jako obnažený meč, a kladeš jej tam ty. Činíš mě zodpovědným za to, že není telecí maso, že vyrábíme špatné boty, že nemůžeš cestovat po světě, kdy a kam se ti zachce. Připisuješ na mé konto rozkopané ulice, padající římsy, nudné noviny, zbabělé poslance a všemohoucí policajty. Beru to jako hozenou rukavici, která mne nutí ještě víc odbíhat od psaní, starat se o věci, do kterých mi koneckonců nic není. Pak jednou, konečně! přijde den, přijde týden, přijde čas, kdy těch dvacet let vydá plody, kdy život znovu začne stát za to, aby se žil. A v tu chvíli se ty, o kterou mi šlo, zvedáš na tribuně s pocitem nudy a hnusu, abys pronesla příměr o blbé žaluzii!
 
-> Překvapilo mne, že necítím hněv ani lítost. Náhle jsem jasně pochopil, že mne u ní držel vlastně už jen vzdor. Chtěl jsem jí dokázat, že mám pravdu. Teď se stalo. Byl jsem zas volný a svobodný jako má vlast. Našla svůj pevný bod. Také já jsem ho našel.
+Překvapilo mne, že necítím hněv ani lítost. Náhle jsem jasně pochopil, že mne u ní držel vlastně už jen vzdor. Chtěl jsem jí dokázat, že mám pravdu. Teď se stalo. Byl jsem zas volný a svobodný jako má vlast. Našla svůj pevný bod. Také já jsem ho našel.
 
-> – Rozejdeme se! Tentokrát doopravdy. Koupím ti letenku, anebo, jestli chceš, můžeš se vrátit mým vozem sama. Chci mít konečně pokoj od politiky, od tebe, od všeho. Chci mít poprvé v životě skutečné prázdniny, prázdniny od života. Až se vrátím, začnu úplně znova. Bude to i můj druhý poločas.
+– Rozejdeme se! Tentokrát doopravdy. Koupím ti letenku, anebo, jestli chceš, můžeš se vrátit mým vozem sama. Chci mít konečně pokoj od politiky, od tebe, od všeho. Chci mít poprvé v životě skutečné prázdniny, prázdniny od života. Až se vrátím, začnu úplně znova. Bude to i můj druhý poločas.
 
-> – Máš pravdu, řekla. – Vyndej mi kufr a nezdržuj se.
+– Máš pravdu, řekla. – Vyndej mi kufr a nezdržuj se.
 
-> – Napřed ti snad musím zařídit odjezd…!
+– Napřed ti snad musím zařídit odjezd…!
 
-> – Kam bych jezdila? Mně se tu líbí.
+– Kam bych jezdila? Mně se tu líbí.
 
-> – Víš dobře, že je to nesmysl. Neumíš ani jednu řeč.
+– Víš dobře, že je to nesmysl. Neumíš ani jednu řeč.
 
-> – K čemu jsem se je měla učit? Díky vám jsem vyrůstala v zemi, odkud se smělo jezdit nejdál na Slovensko.
+– K čemu jsem se je měla učit? Díky vám jsem vyrůstala v zemi, odkud se smělo jezdit nejdál na Slovensko.
 
-> – Mám dojem, že jsi za poslední tři roky projela půl Evropy.
+– Mám dojem, že jsi za poslední tři roky projela půl Evropy.
 
-> – Ano. Ale s tebou.
+– Ano. Ale s tebou.
 
-> – Děkuju za upřímnost. Naštěstí víš, že teď už můžeš vyjet i beze mne. Nic ti tedy nebrání, aby ses vrátila domů a našla si konečně někoho podle chuti.
+– Děkuju za upřímnost. Naštěstí víš, že teď už můžeš vyjet i beze mne. Nic ti tedy nebrání, aby ses vrátila domů a našla si konečně někoho podle chuti.
 
-> – Ani mě nenapadne, řekla. – Vracela jsem se tam vlastně jen kvůli tobě. I když to čím dál méně chápu, je asi fakt, že jsem tě musela mít ráda. Zajímal jsi mě snad právě proto, že jsi byl jeden z nich. Když jsem si přečetla jmenovku na tvých dveřích, jímala mě hrůza, co by tomu řekli rodiče, příbuzní, spolužáci. Patřil jsi k těm, které jsme nenáviděli. Učili jsme se ve škole tvoje básně o Gottwaldovi, o straně, o našich velkých osvoboditelích. Hádali jsme se, jestli je píšeš z blbosti, anebo pro peníze. Chtěla jsem to vypátrat. Tím spíš, že jsi na blbce nevypadal. Chtěla jsem vědět, jací jste doopravdy. Zjistila jsem ke svému úžasu, že tomu všemu skutečně věříš. Ale i v té rudotě občas problesklo něco lidského. Snažila jsem se to v tobě probudit. Chtěla jsem, abys pochopil, co si o vás myslíme. Tys to pochopil po svém. Snažil ses přesvědčit mě. Sedali jsme s lidmi, kteří byli neobyčejně nudní, tahal jsi mě na schůze, které mi připadaly nesmyslné, pořád jsi úporně bojoval za něco, co bylo v podstatě směšné. Za dvacet let jste dosáhli obrovského vítězství: přivedli jste nás slavně tam, kde jsme byli už před dvaceti lety. A zase chcete, abychom vám děkovali za krásnou vyhlídku. Vrať se sám, mě už nezajímá. Poznali jsme vás až příliš, než abychom mohli uvěřit, že se jí dočkáme. Jeď a nestarej se, já se tu neztratím. Mám po krk života v kleci. A jsem, koneckonců, naštěstí ženská! Klidně jeď, ručím ti za to, že i bez tebe jsem do večera v Římě, do týdne se domluvím a do měsíce vdávám, dokonce nejen bohatě, ale i z lásky. Mám díky vám ještě jednu výhodu. Abychom dali cele svá srdce světové revoluci, zatajili jste nám už ve škole, že máme vlast. Bylo neslušné zpívat hymnu či vyvěšovat vlajku, pokud kolem nevlály vlajky a nehřměly hymny našich bratří. Učili jste nás, co řekl první tajemník mongolské strany o chovu skopců, ale zatajili jste nám, že první prezident naší země byl filozof. Proměnili jste v muzeum dům, kam jednou náhodně zašel Vladimír Iljič, ale nechali jste nás nevědomé chodit kolem domu, kde se narodil a psal Franz Kafka. Místo do hrobky českých králů jste nás vodili k nabalzamované mrtvole Klementa Gottwalda. O pár let později jste ji spálili s káravým podotknutím, že šlo o produkt kultu osobnosti. Jako by se nabalzamoval sám! Vypukl věk vůdců, kteří postrádali dokonce i osobnost. Jaký div, že jste museli změnit státní znak a popřít národní tradice, aby ten rozdíl nebil tolik do očí. Trvali jste na tom, abychom se stali ryzími internacionalisty. Dalo nám to práci, ale vyplatila se. Zbavili jsme se sentimentálních pout. Můžeme vyměnit Prahu za kterékoli město, aniž bychom postrádali víc než pár krásných portálů, které lze najít i jinde. Můžeme vyměnit hymnu, vlajku i řeč, aniž bychom ztráceli víc než pár prázdných symbolů, jaké jsou k mání všude. Nikdo nám nevštípil dějiny ani tradice. Změnit vlast není pro nás těžší než přestoupit z tramvaje do tramvaje. Nejsem si jistá, jestli jste právě tohle chtěli, ale je fakt, že jste to dokázali. Dnes vidím, že dokonce není těžké ztrácet tebe. Až zmizíš támhle v té protější ulici, přijde mi, jako bys nikdy nebyl!
+– Ani mě nenapadne, řekla. – Vracela jsem se tam vlastně jen kvůli tobě. I když to čím dál méně chápu, je asi fakt, že jsem tě musela mít ráda. Zajímal jsi mě snad právě proto, že jsi byl jeden z nich. Když jsem si přečetla jmenovku na tvých dveřích, jímala mě hrůza, co by tomu řekli rodiče, příbuzní, spolužáci. Patřil jsi k těm, které jsme nenáviděli. Učili jsme se ve škole tvoje básně o Gottwaldovi, o straně, o našich velkých osvoboditelích. Hádali jsme se, jestli je píšeš z blbosti, anebo pro peníze. Chtěla jsem to vypátrat. Tím spíš, že jsi na blbce nevypadal. Chtěla jsem vědět, jací jste doopravdy. Zjistila jsem ke svému úžasu, že tomu všemu skutečně věříš. Ale i v té rudotě občas problesklo něco lidského. Snažila jsem se to v tobě probudit. Chtěla jsem, abys pochopil, co si o vás myslíme. Tys to pochopil po svém. Snažil ses přesvědčit mě. Sedali jsme s lidmi, kteří byli neobyčejně nudní, tahal jsi mě na schůze, které mi připadaly nesmyslné, pořád jsi úporně bojoval za něco, co bylo v podstatě směšné. Za dvacet let jste dosáhli obrovského vítězství: přivedli jste nás slavně tam, kde jsme byli už před dvaceti lety. A zase chcete, abychom vám děkovali za krásnou vyhlídku. Vrať se sám, mě už nezajímá. Poznali jsme vás až příliš, než abychom mohli uvěřit, že se jí dočkáme. Jeď a nestarej se, já se tu neztratím. Mám po krk života v kleci. A jsem, koneckonců, naštěstí ženská! Klidně jeď, ručím ti za to, že i bez tebe jsem do večera v Římě, do týdne se domluvím a do měsíce vdávám, dokonce nejen bohatě, ale i z lásky. Mám díky vám ještě jednu výhodu. Abychom dali cele svá srdce světové revoluci, zatajili jste nám už ve škole, že máme vlast. Bylo neslušné zpívat hymnu či vyvěšovat vlajku, pokud kolem nevlály vlajky a nehřměly hymny našich bratří. Učili jste nás, co řekl první tajemník mongolské strany o chovu skopců, ale zatajili jste nám, že první prezident naší země byl filozof. Proměnili jste v muzeum dům, kam jednou náhodně zašel Vladimír Iljič, ale nechali jste nás nevědomé chodit kolem domu, kde se narodil a psal Franz Kafka. Místo do hrobky českých králů jste nás vodili k nabalzamované mrtvole Klementa Gottwalda. O pár let později jste ji spálili s káravým podotknutím, že šlo o produkt kultu osobnosti. Jako by se nabalzamoval sám! Vypukl věk vůdců, kteří postrádali dokonce i osobnost. Jaký div, že jste museli změnit státní znak a popřít národní tradice, aby ten rozdíl nebil tolik do očí. Trvali jste na tom, abychom se stali ryzími internacionalisty. Dalo nám to práci, ale vyplatila se. Zbavili jsme se sentimentálních pout. Můžeme vyměnit Prahu za kterékoli město, aniž bychom postrádali víc než pár krásných portálů, které lze najít i jinde. Můžeme vyměnit hymnu, vlajku i řeč, aniž bychom ztráceli víc než pár prázdných symbolů, jaké jsou k mání všude. Nikdo nám nevštípil dějiny ani tradice. Změnit vlast není pro nás těžší než přestoupit z tramvaje do tramvaje. Nejsem si jistá, jestli jste právě tohle chtěli, ale je fakt, že jste to dokázali. Dnes vidím, že dokonce není těžké ztrácet tebe. Až zmizíš támhle v té protější ulici, přijde mi, jako bys nikdy nebyl!
 
-> To mi stačilo. Vstal jsem a došel k vozu, vytáhl její kufr, její tašku, její porůznu zastrkané věci. Položil jsem to všechno na rozpálenou dlažbu a zabouchl za sebou dveře. Vůz se podobal peci. Spustil jsem rychle všechna čtyři okna a nastartoval. Ještě jednou jsem k ní otočil hlavu. Seděla bez pohnutí nad dvěma skleničkami, sama na té obrovské scéně mezi Palazzo dei Priori a Dómem, kterou právě opouštím po svém posledním výstupu. Teď už jsem bezpečně věděl, že to dokážu. Byla cizí a vzdálená jako ženy na začátku mé milostné abecedy, už dávno neskutečné a neuvěřitelné. Nezůstala ve mně ani láska, ani zodpovědnost. Ostatně – nestála o ni. Patřila už do jiného světa. Vždycky do něho patřila, to jen má věčná naivita mi namlouvala opak.
+To mi stačilo. Vstal jsem a došel k vozu, vytáhl její kufr, její tašku, její porůznu zastrkané věci. Položil jsem to všechno na rozpálenou dlažbu a zabouchl za sebou dveře. Vůz se podobal peci. Spustil jsem rychle všechna čtyři okna a nastartoval. Ještě jednou jsem k ní otočil hlavu. Seděla bez pohnutí nad dvěma skleničkami, sama na té obrovské scéně mezi Palazzo dei Priori a Dómem, kterou právě opouštím po svém posledním výstupu. Teď už jsem bezpečně věděl, že to dokážu. Byla cizí a vzdálená jako ženy na začátku mé milostné abecedy, už dávno neskutečné a neuvěřitelné. Nezůstala ve mně ani láska, ani zodpovědnost. Ostatně – nestála o ni. Patřila už do jiného světa. Vždycky do něho patřila, to jen má věčná naivita mi namlouvala opak.
 
-> Odbrzdil jsem. Vůz se pomalu rozjížděl z prudkého svahu. Ještě jednou se mihly ve zpětném zrcátku barevné stolky. Pak jsem vjel do protější ulice. Nic se ve mně nepohnulo. Naopak. Začal jsem přemýšlet o mladých krásných dívkách, které pozítří potkám v srpnové Praze. O těch padesáti, které bez váhání zahodí všechno, aby mohly sdílet můj zbrusu nový život. Pot, který ze mne přímo lil, mi poprvé nebyl nepříjemný. Sluneční žár mne očišťoval jako sauna. Duševní příprava nanečisto dopadla bezvadně. Mohl jsem to tedy zkusit doopravdy. Ça ira!
+Odbrzdil jsem. Vůz se pomalu rozjížděl z prudkého svahu. Ještě jednou se mihly ve zpětném zrcátku barevné stolky. Pak jsem vjel do protější ulice. Nic se ve mně nepohnulo. Naopak. Začal jsem přemýšlet o mladých krásných dívkách, které pozítří potkám v srpnové Praze. O těch padesáti, které bez váhání zahodí všechno, aby mohly sdílet můj zbrusu nový život. Pot, který ze mne přímo lil, mi poprvé nebyl nepříjemný. Sluneční žár mne očišťoval jako sauna. Duševní příprava nanečisto dopadla bezvadně. Mohl jsem to tedy zkusit doopravdy. Ça ira!
 
-> – Nuže, řekl jsem, – na tvé osvobození od vlasti, jakož i na mé od tebe!
+– Nuže, řekl jsem, – na tvé osvobození od vlasti, jakož i na mé od tebe!
 
-> Připila si se mnou. Položil jsem na stůl její pas.
+Připila si se mnou. Položil jsem na stůl její pas.
 
-> – Snad ti bude ještě chvíli k něčemu dobrý.
+– Snad ti bude ještě chvíli k něčemu dobrý.
 
-> Zvedal jsem se, sbíraje síly, abych zpříma došel k vozu, když se ozval podivný hlas. Bylo to spíše táhlé skučení, znásobené ozvěnou.
+Zvedal jsem se, sbíraje síly, abych zpříma došel k vozu, když se ozval podivný hlas. Bylo to spíše táhlé skučení, znásobené ozvěnou.
 
-> Ze středověké kulisy vyběhl na scénu kamenným průjezdem snědý muž s balíkem novin. Když doběhl téměř k nám, zavolal opět mečivým hlasem.
+Ze středověké kulisy vyběhl na scénu kamenným průjezdem snědý muž s balíkem novin. Když doběhl téměř k nám, zavolal opět mečivým hlasem.
 
-> – Cecoslovacchia è occupata!
+– Cecoslovacchia è occupata!
 
-> Na potištěné plachtě, kterou zvedal přímo proti mým očím, byla důvěrně známá silueta hranic probodena ze všech stran šípy vojenských operací. Z velkého snímku v rohu na ni mířilo dělo tanku.
+Na potištěné plachtě, kterou zvedal přímo proti mým očím, byla důvěrně známá silueta hranic probodena ze všech stran šípy vojenských operací. Z velkého snímku v rohu na ni mířilo dělo tanku.
 
-> Uvědomil jsem si s ulehčením svou opilost. Někdy se mi stává, že po alkoholu usínám a mívám pak spíše než jindy své groteskní, absurdní sny. Uslyšel jsem však podivný zvuk a otočil hlavu.
+Uvědomil jsem si s ulehčením svou opilost. Někdy se mi stává, že po alkoholu usínám a mívám pak spíše než jindy své groteskní, absurdní sny. Uslyšel jsem však podivný zvuk a otočil hlavu.
 
-> Hlasitě plakala.
+Hlasitě plakala.
 
-> Podíval jsem se lépe na ten tank.
+Podíval jsem se lépe na ten tank.
 
 * * *
 
@@ -620,85 +620,85 @@ Nechci Tě budit. Vyskočím oknem.
 Středa 21. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
-> Bez mapy jsem rychle našel výpadovku. K návratům nikdy nepotřebuju mapu. Vracím se jako pes po vlastní stopě.
+Bez mapy jsem rychle našel výpadovku. K návratům nikdy nepotřebuju mapu. Vracím se jako pes po vlastní stopě.
 
-> Film se odvíjí zpátky: okrové Gubio v krajině beze stromů jako pevnost obležená sluncem, blesk serpentiny zabodnutý mezi růžové paláce Urbina, dál k severu, mezi Scyllou Rimini a Charybdou San Marina, napříč Ravennou kolem ohavné kamenné rakety Dantova hrobu, Ghioggií, za níž tlí v mělkém moři slavný vrak Benátek, proti Dolomitům, které útočí a ros­tou jako příliv, film se zrychluje, nastává kamenný odliv, Lienz jako odraziště k novému skoku do hor, Grossglockner s věncem mlhy, Salcburk s čelenkou hradu, nudný Linec jako zvláštní, nejasná, sladká vzpomínka z dětství, krajina-předzvěst, krajina-předsíň rodného domu, posledních sto metrů, film se zastavuje.
+Film se odvíjí zpátky: okrové Gubio v krajině beze stromů jako pevnost obležená sluncem, blesk serpentiny zabodnutý mezi růžové paláce Urbina, dál k severu, mezi Scyllou Rimini a Charybdou San Marina, napříč Ravennou kolem ohavné kamenné rakety Dantova hrobu, Ghioggií, za níž tlí v mělkém moři slavný vrak Benátek, proti Dolomitům, které útočí a ros­tou jako příliv, film se zrychluje, nastává kamenný odliv, Lienz jako odraziště k novému skoku do hor, Grossglockner s věncem mlhy, Salcburk s čelenkou hradu, nudný Linec jako zvláštní, nejasná, sladká vzpomínka z dětství, krajina-předzvěst, krajina-předsíň rodného domu, posledních sto metrů, film se zastavuje.
 
-> Pod hraniční závorou uprostřed jízdní dráhy stojí tank. Dívá se na mne svým jediným kyklopským okem dělové hlavně. Tisknu současně klakson i pedál plynu. Renault vyráží vpřed jako válečný kůň a řítí se proti kovovému kopí, které mu uzavírá cestu domů…
+Pod hraniční závorou uprostřed jízdní dráhy stojí tank. Dívá se na mne svým jediným kyklopským okem dělové hlavně. Tisknu současně klakson i pedál plynu. Renault vyráží vpřed jako válečný kůň a řítí se proti kovovému kopí, které mu uzavírá cestu domů…
 
-> Ne, všechno je jinak! Ručička tachometru se přilepila ke stopadesátce. Šíp autostrády mířil už hodinu k jihu. Levou ruku na volantu, pravou jsem lovil ve změti rozhlasových stanic. Éter byl plný překotné italštiny. Jako magická formule se znovu a znovu ozývalo slovo Cecoslovacchia. Seděla vedle mne nehybná a němá. Náhle se předklonila.
+Ne, všechno je jinak! Ručička tachometru se přilepila ke stopadesátce. Šíp autostrády mířil už hodinu k jihu. Levou ruku na volantu, pravou jsem lovil ve změti rozhlasových stanic. Éter byl plný překotné italštiny. Jako magická formule se znovu a znovu ozývalo slovo Cecoslovacchia. Seděla vedle mne nehybná a němá. Náhle se předklonila.
 
-> – Naši!
+– Naši!
 
-> Před námi ujížděla škodovka s bratislavskou značkou. Sotva jsem ji předjel, spustil jsem okénko a dával znamení, aby zastavili. Minuli nás v plné rychlosti a zamávali. Nerozuměli, anebo nechtěli. Opět jsem se rozjel a v několika vteřinách je dohonil. Jeli jsme na jejích úrovni a znovu dávali znamení. Domlouvali se mezi sebou. Pak začal šofér brzdit. Zastavil jsem těsně za nimi. Z vozu vystoupil vysoký šedivý muž. Kalhoty z erární látky prozrazovaly důstojníka. Promluvil slovensky.
+Před námi ujížděla škodovka s bratislavskou značkou. Sotva jsem ji předjel, spustil jsem okénko a dával znamení, aby zastavili. Minuli nás v plné rychlosti a zamávali. Nerozuměli, anebo nechtěli. Opět jsem se rozjel a v několika vteřinách je dohonil. Jeli jsme na jejích úrovni a znovu dávali znamení. Domlouvali se mezi sebou. Pak začal šofér brzdit. Zastavil jsem těsně za nimi. Z vozu vystoupil vysoký šedivý muž. Kalhoty z erární látky prozrazovaly důstojníka. Promluvil slovensky.
 
-> – Čo potrebujete? Ponáhľame sa. Ideme až do Palerma.
+– Čo potrebujete? Ponáhľame sa. Ideme až do Palerma.
 
-> Ozvala se dřív než já.
+Ozvala se dřív než já.
 
-> – Okupují nás!
+– Okupují nás!
 
-> Také jeho žena se okamžitě rozvzlykala. Ženy mají úděsný instinkt. I tahle, třebaže se k ní slzy téměř nehodily. Byla vysoká a šedivá jako on, dovedl jsem si ji představit v uniformě. Obořil se na ni.
+Také jeho žena se okamžitě rozvzlykala. Ženy mají úděsný instinkt. I tahle, třebaže se k ní slzy téměř nehodily. Byla vysoká a šedivá jako on, dovedl jsem si ji představit v uniformě. Obořil se na ni.
 
-> – Čo blázniš, prosím ťa? Varšavská zmluva bude predsa okamžite intervenovať! Vyprášime ich behom dvadsiatich štyroch hodín!
+– Čo blázniš, prosím ťa? Varšavská zmluva bude predsa okamžite intervenovať! Vyprášime ich behom dvadsiatich štyroch hodín!
 
-> Spontánní reakce muže, který zažil Mnichov. Viděl jsem na něm, že je ochoten obrátit škodovku a vyjet s ní proti Němcům jako na husitském voze. Podal jsem mu noviny. Beze slova hleděl na mapu se šipkami. Teprve teď mě napadlo, že důstojníci nesmějí jezdit na Západ.
+Spontánní reakce muže, který zažil Mnichov. Viděl jsem na něm, že je ochoten obrátit škodovku a vyjet s ní proti Němcům jako na husitském voze. Podal jsem mu noviny. Beze slova hleděl na mapu se šipkami. Teprve teď mě napadlo, že důstojníci nesmějí jezdit na Západ.
 
-> – Vy jste voják?
+– Vy jste voják?
 
-> Musel jsem otázku opakovat, než ji zaslechl.
+Musel jsem otázku opakovat, než ji zaslechl.
 
-> – Minulý týždeň ma rehabilitovali…
+– Minulý týždeň ma rehabilitovali…
 
-> Jeho žena to doplnila:
+Jeho žena to doplnila:
 
-> – Vycestovali sme prvykrát po dvadsiatich rokoch…
+– Vycestovali sme prvykrát po dvadsiatich rokoch…
 
-> Kolem nás svištěla cizí krajinou cizí auta. Klaksony vytrubovaly útržky břeskných melodií. Kdesi nad námi se pohybovaly špionážní družice, registrující předměty o velikosti jednoho metru. Představil jsem si Evropu pohledem těch fantastických teleobjektivů. Od Černého moře k Atlantiku, od Středozemí až k polárnímu kruhu stály mlčky statisíce zkamenělých postav. Byli to Češi a Slováci, vyvržení ze svých drah. Naše osudy se spojily a zastavily.
+Kolem nás svištěla cizí krajinou cizí auta. Klaksony vytrubovaly útržky břeskných melodií. Kdesi nad námi se pohybovaly špionážní družice, registrující předměty o velikosti jednoho metru. Představil jsem si Evropu pohledem těch fantastických teleobjektivů. Od Černého moře k Atlantiku, od Středozemí až k polárnímu kruhu stály mlčky statisíce zkamenělých postav. Byli to Češi a Slováci, vyvržení ze svých drah. Naše osudy se spojily a zastavily.
 
-> – Kam idete? zeptal se mne šofér nejistě, jako chlapec, který beznadějně zabloudil.
+– Kam idete? zeptal se mne šofér nejistě, jako chlapec, který beznadějně zabloudil.
 
-> Teprve teď jsem to věděl.
+Teprve teď jsem to věděl.
 
-> – Na vyslanectví.
+– Na vyslanectví.
 
-> – Pôjdem za vami, řekl.
+– Pôjdem za vami, řekl.
 
-> Kdysi dávno jsem letěl z Prahy do Brna. Evropa zmizela v mlze, jediná Vídeň zachraňovala trosečníky. V té době bylo ještě i Rakousko terra prohibita. Jízda autobusem přes Mariahilferstrasse se podobala neskutečnému snu. Právě tak neskutečný byl dnes odpoledne Řím.
+Kdysi dávno jsem letěl z Prahy do Brna. Evropa zmizela v mlze, jediná Vídeň zachraňovala trosečníky. V té době bylo ještě i Rakousko terra prohibita. Jízda autobusem přes Mariahilferstrasse se podobala neskutečnému snu. Právě tak neskutečný byl dnes odpoledne Řím.
 
-> Korunami cypřišů ve Villa Borghese pronikaly snopy slu­nečních paprsků, jako by vystoupily z barokních obrazů. Řady kavárenských židliček, obrácených čelem k jízdní dráze, připomínaly desítky divadélek. Hosté listovali v novinách jako v programu. Všude se hrála okupace Československa.
+Korunami cypřišů ve Villa Borghese pronikaly snopy slu­nečních paprsků, jako by vystoupily z barokních obrazů. Řady kavárenských židliček, obrácených čelem k jízdní dráze, připomínaly desítky divadélek. Hosté listovali v novinách jako v programu. Všude se hrála okupace Československa.
 
-> Jel jsem zas bezpečné po své pěší stopě staré dvanáct let. Světová federace mládeže tu tehdy pořádala jakýsi kongres. Abychom jako komunisté dostali vízum, vydávali nás za spor­tovce. Pro uklidnění policie jsme každé ráno vyklusávali kolečka v římských parcích.
+Jel jsem zas bezpečné po své pěší stopě staré dvanáct let. Světová federace mládeže tu tehdy pořádala jakýsi kongres. Abychom jako komunisté dostali vízum, vydávali nás za spor­tovce. Pro uklidnění policie jsme každé ráno vyklusávali kolečka v římských parcích.
 
-> Vyslanectví se ohlašovalo už z dálky. Via Luisa di Savoia byla vzdor zákazům přeplněna parkujícími československými auty. Před budovou zmatek, slzy a hněv. Italští karabiniéři s ducatými tvářemi venkovanů rozháněli zástup lidí v teplákách a plážových šatech.
+Vyslanectví se ohlašovalo už z dálky. Via Luisa di Savoia byla vzdor zákazům přeplněna parkujícími československými auty. Před budovou zmatek, slzy a hněv. Italští karabiniéři s ducatými tvářemi venkovanů rozháněli zástup lidí v teplákách a plážových šatech.
 
-> – Proč nejdete dovnitř?
+– Proč nejdete dovnitř?
 
-> Opálený mladík v pruhovaném tričku vypadal jako Říman, ale promluvil nefalšovanou pražštinou.
+Opálený mladík v pruhovaném tričku vypadal jako Říman, ale promluvil nefalšovanou pražštinou.
 
-> – Zamkli se, svině! Asi už voprašujou portréty Novotnýho!
+– Zamkli se, svině! Asi už voprašujou portréty Novotnýho!
 
-> Přistoupil jsem ke dveřím a zmáčkl zvonek. Byl to silný zvonek. Nechal jsem prst na tlačítku.
+Přistoupil jsem ke dveřím a zmáčkl zvonek. Byl to silný zvonek. Nechal jsem prst na tlačítku.
 
-> – Signore, basta, basta!
+– Signore, basta, basta!
 
-> Důstojník byl mladý a horlivý. Pohlédl jsem na něho z výše schodů a sebral střepy své italštiny.
+Důstojník byl mladý a horlivý. Pohlédl jsem na něho z výše schodů a sebral střepy své italštiny.
 
-> – Io sono all’ambasciata!
+– Io sono all’ambasciata!
 
-> Zasalutoval mi.
+Zasalutoval mi.
 
-> – Skusi, signore…!
+– Skusi, signore…!
 
-> Řinčení zvonku prostupovalo celou budovu. Krajané s napětím přihlíželi experimentu. Ti uvnitř za pět minut ztratili nervy. Dveře se rozletěly a objevila se ta známá drahá tvář českých vrátných, kterou by člověk nejradši rovnou praštil. Zastupoval vrchnost a chystal se k jejímu rozhořčení přimísit vlastní žluč. Než stačil otevřít ústa, řekl jsem ledově.
+Řinčení zvonku prostupovalo celou budovu. Krajané s napětím přihlíželi experimentu. Ti uvnitř za pět minut ztratili nervy. Dveře se rozletěly a objevila se ta známá drahá tvář českých vrátných, kterou by člověk nejradši rovnou praštil. Zastupoval vrchnost a chystal se k jejímu rozhořčení přimísit vlastní žluč. Než stačil otevřít ústa, řekl jsem ledově.
 
-> – Chci vás upozornit, že tato budova nebyla dosud okupována. Vyřiďte šéfovi úřadu, ať okamžitě vpustí dovnitř občany republiky, kterou tu zastupujete. V opačném případě budeme žádat jeho odvolání.
+– Chci vás upozornit, že tato budova nebyla dosud okupována. Vyřiďte šéfovi úřadu, ať okamžitě vpustí dovnitř občany republiky, kterou tu zastupujete. V opačném případě budeme žádat jeho odvolání.
 
-> Pražské jaro stále ještě kvetlo. Šel ihned k telefonu a volal kamsi vysoko vzhůru, neboť mluvil uctivě, upíraje oči ke stropu.
+Pražské jaro stále ještě kvetlo. Šel ihned k telefonu a volal kamsi vysoko vzhůru, neboť mluvil uctivě, upíraje oči ke stropu.
 
-> Ale to už jsem ho nevnímal, protože po schodech proti mně sestupoval – on!
+Ale to už jsem ho nevnímal, protože po schodech proti mně sestupoval – on!
 
 * * *
 
@@ -850,7 +850,7 @@ ZVEDÁM TVOU RYTÍŘSKOU RUKAVICI A PONESU JI DÁL JAKO SVŮJ PRAPOR!
 Středa 21. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
 _On_: Je to třetí a nejtěžší šok mého života!
 
@@ -864,9 +864,9 @@ _On_: Bojím se to nazvat.
 
 _Já_: Ty máš pořád ještě rodiče?
 
-> Moje otázka ho překvapila. Přestal otáčet sklenkou, ve které rytmicky cinkal led. Přisvědčil. Bylo zřejmé, že pátrá po smyslu toho odbočení. Vysvětlil jsem.
+Moje otázka ho překvapila. Přestal otáčet sklenkou, ve které rytmicky cinkal led. Přisvědčil. Bylo zřejmé, že pátrá po smyslu toho odbočení. Vysvětlil jsem.
 
-> – Jsi starší než já, ale já jsem, bohužel, v něčem dospělejší. Pamatuju se přesně na březen 53 i na jaro 56. Taky jsem byl tenkrát přesvědčen, že se zbořil svět. Jenomže pak jsem pohřbil krátce za sebou oba rodiče. A teprv tehdy vstoupilo do mého života měřítko.
+– Jsi starší než já, ale já jsem, bohužel, v něčem dospělejší. Pamatuju se přesně na březen 53 i na jaro 56. Taky jsem byl tenkrát přesvědčen, že se zbořil svět. Jenomže pak jsem pohřbil krátce za sebou oba rodiče. A teprv tehdy vstoupilo do mého života měřítko.
 
 _On_: Slučuješ neslučitelné. Je mi čtyřicet jako tobě, zažil jsem si svoje. Rozvod… nač to sem tahat. Nepodceňuju lidskou sféru života. Ale my jsme přesně determinovaná generace. Politika vstoupila do našich osudů jako jejich neodbytná součást. Politické otřesy nás ohrožují stejně jako otřesy osobní, ne-li víc. Vzpomeň na tu sérii sebevražd letošního jara. Byli to lidé ještě dospělejší než my, prošli frontami i koncentráky, taky jistě zažili své soukromé vichřice. A přece stačilo zhroucení politické koncepce, aby zanikla celá jejich lidská rovnováha.
 
@@ -882,7 +882,7 @@ _Já_: That’s the question! To je ta otázka!
 
 _On_: Narážíš-li na moskevské procesy, uvěřila jim v té době z dobrých důvodů drtivá většina evropských komunistů i socialistů. Navíc byly tradice naší strany hluboce demokratické!
 
-> Bylo ještě brzo, atmosférické poruchy stále znemožňovaly vyladit Prahu. Čekali jsme na zprávy italské televize v pokoji, který ani tady, v srdci věčného města, nezapřel svou ne­osobností český služební byt. I on byl vizitkou našeho úpadku. Vlast legendárního porcelánu a křišťálového skla vybavovala své reprezentanty kýčem z obchodního domu.
+Bylo ještě brzo, atmosférické poruchy stále znemožňovaly vyladit Prahu. Čekali jsme na zprávy italské televize v pokoji, který ani tady, v srdci věčného města, nezapřel svou ne­osobností český služební byt. I on byl vizitkou našeho úpadku. Vlast legendárního porcelánu a křišťálového skla vybavovala své reprezentanty kýčem z obchodního domu.
 
 _Já_: Nejde o jednotlivosti, ale o podstatu věci: Přihlásili jsme se k marxismu, protože nám nabídl princip vědeckého poznání přírody i společností. Může nás tedy omlouvat, že jsme něčemu věřili? Má-li lékař operovat, musí bezpodmínečně znát diagnózu a vlastní schopnosti i možnosti. Jinak se dopouští zločinu. Pro marxistu, který chce operovat společnost, to platí dvojnásob.
 
@@ -896,15 +896,15 @@ _Já_: Ale byl jsi! Proboha, proč mluvíš pořád jako partajní funkcionář?
 
 _On_: Protože jsem, i když momentálně jaksi ve vyhnanství. Protože někdo ho dělat musel. Ale o tom si snad můžeme povídat jindy.
 
-> Bylo jasné, že se nechce přít před ní. Upíjela campari, ve kterém rychle tál led, a nedalo se poznat, zda nás vůbec poslouchá. Snad to bylo lepší. Jestliže mne obvykle svým úmyslně přeháněným antikomunismem nutila obhajovat fundamentální myšlenky, ocital jsem se před ní při diskusích s komunisty v groteskní kontrapozici. Připomněl jsem si jisté pražské psychiatrické zařízení, které hostí ve svých zdech vězně koncentračních táborů i protektorátní kolaboranty, oběti politických procesů i jejich vyšetřovatele. Napadlo mne, že je moje generace posílí skupinou schizofreniků. To už však hovořil dál.
+Bylo jasné, že se nechce přít před ní. Upíjela campari, ve kterém rychle tál led, a nedalo se poznat, zda nás vůbec poslouchá. Snad to bylo lepší. Jestliže mne obvykle svým úmyslně přeháněným antikomunismem nutila obhajovat fundamentální myšlenky, ocital jsem se před ní při diskusích s komunisty v groteskní kontrapozici. Připomněl jsem si jisté pražské psychiatrické zařízení, které hostí ve svých zdech vězně koncentračních táborů i protektorátní kolaboranty, oběti politických procesů i jejich vyšetřovatele. Napadlo mne, že je moje generace posílí skupinou schizofreniků. To už však hovořil dál.
 
-> – Každá revoluce je srážka ideální představy s konkrétní skutečností. Revoluci může programovat mozek vědce nebo světce, ale provést ji musí miliony ubohých hříšníků.
+– Každá revoluce je srážka ideální představy s konkrétní skutečností. Revoluci může programovat mozek vědce nebo světce, ale provést ji musí miliony ubohých hříšníků.
 
 _Já_: Rád slyším, že tě ani dvacet let stranické práce nevyléčilo z metafor.
 
-> Jako kdysi i teď soustředěně sledoval svou myšlenku a nedal se vyrušit.
+Jako kdysi i teď soustředěně sledoval svou myšlenku a nedal se vyrušit.
 
-> – Snad se spolu ještě i dneska shodneme v tom, že kapitalismus splnil svou historickou úlohu a narazil na vlastní strop.
+– Snad se spolu ještě i dneska shodneme v tom, že kapitalismus splnil svou historickou úlohu a narazil na vlastní strop.
 
 _Já_: Proč snad? Určitě!
 
@@ -914,41 +914,41 @@ _Já_: A někdy dokonce proti nim…
 
 _On_: Ano, protože je to v jejich nejvlastnějším zájmu. Směli jsme vzdát poznanou pravdu pro plné žaludky a fikci demokracie? Směli jsme riskovat nové vydání první republiky, od střelby do dělníků přes nezaměstnanost až po Mnichov? Směli jsme ve jménu relativní životní úrovně a demokratických tradic zradit čerstvě zformované společenství národů východní Evropy, které se vydaly k socialismu přímo z fašismu nebo dokonce z feudalismu? Vždyť právě skutečnost, že se k revoluci tak spontánně přihlásilo průmyslové i kulturně vyspělé Československo, měla klíčový význam pro celou Evropu! Západ to pochopil okamžitě. Ochromil nás embargem, obklíčil propagandou. Vyhlásil nám studenou válku, která byla sakramentsky horká, protože k ní patřila diverze, sabotáže i surové vraždění řadových komunistů. Zapomněl jsi už na mrtvé v babické škole? To Západ nás donutil stáhnout železnou oponu! Byla to naše jediná možnost, jak získat prostor, klid a čas. Že současně s tím vzniklo i klima, ve kterém bdělost přerostla v podezíravost a třídní spravedlnost ústila někdy ve zvůli, je sice tragédie, ale ne naše vina. Dokud revoluce bojuje o holou existenci, obsahuje vždy latentní konflikty svědomí a nutnosti. Vzpomeň si na Rollandovy Vlky! Já jsem samozřejmě pro potrestání lidí, kteří inscenovali falešné procesy nebo zneužili moc pro své sobecké zájmy. Ale odmítám módní flagelantství, které ve světě Vietnamů a Biafer staví statisíce čestných komunistů do role obžalovaných. Mohu litovat svých chyb. Jsem připraven za ně platit. Ale nemám se osobně za co stydět!
 
-> Uvědomil jsem si, jak málo se změnil. Přes šedivé vlasy na spáncích a ostřejší rysy obličeje vypadal stejně jako před třiadvaceti lety. I monology dosud vedl. Mluvil ovšem tišeji, bez gest, jako by nahlas přemýšlel.
+Uvědomil jsem si, jak málo se změnil. Přes šedivé vlasy na spáncích a ostřejší rysy obličeje vypadal stejně jako před třiadvaceti lety. I monology dosud vedl. Mluvil ovšem tišeji, bez gest, jako by nahlas přemýšlel.
 
-> Všiml jsem si, že i ona ho pozoruje. Kupodivu spíš se zá­jmem než s nesouhlasem, který bych předpokládal. Napadlo mne, že musí mít ještě stále úspěchy u žen. Slabě se ozvala ta jeho dávná zrada.
+Všiml jsem si, že i ona ho pozoruje. Kupodivu spíš se zá­jmem než s nesouhlasem, který bych předpokládal. Napadlo mne, že musí mít ještě stále úspěchy u žen. Slabě se ozvala ta jeho dávná zrada.
 
-> – Není těžké žít v tomhle městě sám? Nebo z tebe strana udělala řeholníka?
+– Není těžké žít v tomhle městě sám? Nebo z tebe strana udělala řeholníka?
 
-> Překvapilo ho to. Ale pak se poprvé zasmál. Skoro chlapecky.
+Překvapilo ho to. Ale pak se poprvé zasmál. Skoro chlapecky.
 
-> – Těžké to začne být teď. Když vidím, že existují krásné ženské, které přesto baví poslouchat tyhle řeči!
+– Těžké to začne být teď. Když vidím, že existují krásné ženské, které přesto baví poslouchat tyhle řeči!
 
-> – Nejsou už ty zprávy? zeptala se vzápětí.
+– Nejsou už ty zprávy? zeptala se vzápětí.
 
-> Jako by se bála, abych ji před ním neshodil. Ale hodiny opravdu ukazovaly přesně sedm. Italský spíkr četl komuniké TASS. Překládal nám, pokud stačil.
+Jako by se bála, abych ji před ním neshodil. Ale hodiny opravdu ukazovaly přesně sedm. Italský spíkr četl komuniké TASS. Překládal nám, pokud stačil.
 
-> „Straničtí a státní funkcionáři ČSSR se obrátili na Sovětský svaz a ostatní bratrské země s naléhavou prosbou o vojenskou pomoc proti kontrarevoluci.“
+„Straničtí a státní funkcionáři ČSSR se obrátili na Sovětský svaz a ostatní bratrské země s naléhavou prosbou o vojenskou pomoc proti kontrarevoluci.“
 
-> Smělé i skvělé Prohlášení předsednictva ústředního výboru Komunistické strany Československa:
+Smělé i skvělé Prohlášení předsednictva ústředního výboru Komunistické strany Československa:
 
-> „Stalo se to bez vědomí prezidenta a předsednictva strany, vlády i Národního shromáždění. Tento akt je v rozporu nejen se základními normami mezinárodního práva, ale i s principy vztahů mezi socialistickými zeměmi.“
+„Stalo se to bez vědomí prezidenta a předsednictva strany, vlády i Národního shromáždění. Tento akt je v rozporu nejen se základními normami mezinárodního práva, ale i s principy vztahů mezi socialistickými zeměmi.“
 
-> Filmová reportáž. Záběr z auta. Jedu vzhůru po Václavském náměstí. Slalom mezi lidmi a tanky. Co mi to připomíná? Chci zpomalit, ale brzda mě neposlouchá. Slavná tmavá fasáda je bíle kropenatá. Zhoršila se kvalita obrazu? Budova uplývá doprava. Pociťuji bezmoc drožkařské kobyly, odsouzené hledět jen kupředu. Bývalý přítel překládá.
+Filmová reportáž. Záběr z auta. Jedu vzhůru po Václavském náměstí. Slalom mezi lidmi a tanky. Co mi to připomíná? Chci zpomalit, ale brzda mě neposlouchá. Slavná tmavá fasáda je bíle kropenatá. Zhoršila se kvalita obrazu? Budova uplývá doprava. Pociťuji bezmoc drožkařské kobyly, odsouzené hledět jen kupředu. Bývalý přítel překládá.
 
-> „Národní muzeum bylo cílem krátké soustředěné palby.“
+„Národní muzeum bylo cílem krátké soustředěné palby.“
 
-> Slyším její vyděšené: Proč…?
+Slyším její vyděšené: Proč…?
 
-> Ale já už vím. Tato salva vyšla předčasně. Byla určena jinému cíli. Blížím se k němu ústím Vinohradské ulice. Dostala zpět své nevinné tradiční jméno poté, co byla nestálým vývěsním štítem tří epoch: Fochova, Schwerinova, Stalinova. Pro Pražany – ulice Tří maršálů. Teď tu zanechalo své vizitky pět dalších najednou.
+Ale já už vím. Tato salva vyšla předčasně. Byla určena jinému cíli. Blížím se k němu ústím Vinohradské ulice. Dostala zpět své nevinné tradiční jméno poté, co byla nestálým vývěsním štítem tří epoch: Fochova, Schwerinova, Stalinova. Pro Pražany – ulice Tří maršálů. Teď tu zanechalo své vizitky pět dalších najednou.
 
-> Převrácený autobus s osleplými okny, osamělá a marná barikáda. Před důvěrně známou budovou s nápisem ČESKO­SLOVENSKÝ ROZHLAS hoří tank. A v průjezdu protějšího domu opět tichá těla, zakrytá praporem.
+Převrácený autobus s osleplými okny, osamělá a marná barikáda. Před důvěrně známou budovou s nápisem ČESKO­SLOVENSKÝ ROZHLAS hoří tank. A v průjezdu protějšího domu opět tichá těla, zakrytá praporem.
 
-> – A to je ten trest, říkám. – To je ten trest!
+– A to je ten trest, říkám. – To je ten trest!
 
-> Obrátil se ke mně.
+Obrátil se ke mně.
 
-> – To se nemuselo stát, nebýt vás.
+– To se nemuselo stát, nebýt vás.
 
 * * *
 
@@ -1147,183 +1147,183 @@ DVA MRTVÉ POHŘBÍT JDU: ŠTĚSTÍ A PŘÍTELE!
 Středa–čtvrtek 21.–22. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
-> Nabídl nám, abychom u něho přespali. Zdvořile jsem to odmítl. Věta, kterou pronesl, šla příliš hluboko pod pás. Přešla mě chuť pokračovat v rozhovoru. A nechtěl jsem mu být za nic vděčný.
+Nabídl nám, abychom u něho přespali. Zdvořile jsem to odmítl. Věta, kterou pronesl, šla příliš hluboko pod pás. Přešla mě chuť pokračovat v rozhovoru. A nechtěl jsem mu být za nic vděčný.
 
-> Pokrčil rameny a obrátil se k ní.
+Pokrčil rameny a obrátil se k ní.
 
-> – Tak vám aspoň zavolám do jednoho malého hotelu. Je blízko ambasády a Češi tam dostávají slevu.
+– Tak vám aspoň zavolám do jednoho malého hotelu. Je blízko ambasády a Češi tam dostávají slevu.
 
-> – Buďte tak hodný! řekla s úsměvem.
+– Buďte tak hodný! řekla s úsměvem.
 
-> Když jsem usedal k volantu, zeptala se mne.
+Když jsem usedal k volantu, zeptala se mne.
 
-> – Co máš v plánu?
+– Co máš v plánu?
 
-> – Navštívit papeže, odpověděl jsem. – Jedině on mi může dát rozhřešení za to, že jsem vám způsobil národní tragédii.
+– Navštívit papeže, odpověděl jsem. – Jedině on mi může dát rozhřešení za to, že jsem vám způsobil národní tragédii.
 
-> Byl jsem unaven, bez nálady, a systém neznámých jednosměrných ulic mne zmátl. Když jsem pár minut bloudil, ozvala se.
+Byl jsem unaven, bez nálady, a systém neznámých jednosměrných ulic mne zmátl. Když jsem pár minut bloudil, ozvala se.
 
-> – Nechápu, proč jsme nemohli zůstat tam.
+– Nechápu, proč jsme nemohli zůstat tam.
 
-> – Myslel jsem, že by ti to bylo právě dneska ještě nepříjemnější než mně.
+– Myslel jsem, že by ti to bylo právě dneska ještě nepříjemnější než mně.
 
-> – Proč? řekla. – Neposlouchala jsem vás.
+– Proč? řekla. – Neposlouchala jsem vás.
 
-> Hotel, který zvýhodňoval Čechy, byl tristním svědectvím naší valutové situace. Přestože ležel v centru, nebyl v pokoji telefon ani tekoucí voda. Vedle železných postelí a staré skříně stálo plechové umyvadlo se džbánem. Utrácel jsem zpravidla většinu svých honorářů za slušné hotely, protože mi bylo trapné předvádět naši bídu. Hned ráno se přestěhujeme!
+Hotel, který zvýhodňoval Čechy, byl tristním svědectvím naší valutové situace. Přestože ležel v centru, nebyl v pokoji telefon ani tekoucí voda. Vedle železných postelí a staré skříně stálo plechové umyvadlo se džbánem. Utrácel jsem zpravidla většinu svých honorářů za slušné hotely, protože mi bylo trapné předvádět naši bídu. Hned ráno se přestěhujeme!
 
-> Přestože celá léta spávala nahá a vedro bylo přímo skleníkové, oblékla si noční košili. Netušil jsem vůbec, že ji má, tím méně, že si ji vzala s sebou. Proč? Usnula ve vteřině.
+Přestože celá léta spávala nahá a vedro bylo přímo skleníkové, oblékla si noční košili. Netušil jsem vůbec, že ji má, tím méně, že si ji vzala s sebou. Proč? Usnula ve vteřině.
 
-> Sešel jsem k vrátnému objednat Prahu.
+Sešel jsem k vrátnému objednat Prahu.
 
-> – Můžete čekat celou noc, jestli ji vůbec dostanete! řekl na třetí pokus mizernou angličtinou.
+– Můžete čekat celou noc, jestli ji vůbec dostanete! řekl na třetí pokus mizernou angličtinou.
 
-> Představa, že uslyším své děti, byla silnější než ospalost. Svlékl jsem si jen košili zmáčenou potem, ulehl v kalhotách na postel a pustil tranzistorové rádio, donesené z vozu. Úzkými průplavy mezi italskými stanicemi se ke mně prodíraly a opět odplouvaly české hlasy. Jeden z nich, s cizím přízvukem, který rval uši, monotónně četl nekonečný článek z moskevské Pravdy „Obrana socialismu je nejvyšší internacionální povinností“.
+Představa, že uslyším své děti, byla silnější než ospalost. Svlékl jsem si jen košili zmáčenou potem, ulehl v kalhotách na postel a pustil tranzistorové rádio, donesené z vozu. Úzkými průplavy mezi italskými stanicemi se ke mně prodíraly a opět odplouvaly české hlasy. Jeden z nich, s cizím přízvukem, který rval uši, monotónně četl nekonečný článek z moskevské Pravdy „Obrana socialismu je nejvyšší internacionální povinností“.
 
-> Autoři vyšli ze zásady, že má-li se lež stát pravdou, musí být co nejabsurdnější. Byla to fantastická sbírka falešných důkazů a zkreslených citátů, která měla zřejmě přesvědčit evropskou levici, že bratrský zásah zabránil pět minut před dvanáctou kontrarevolučnímu puči. Argumentem se staly i lži naší vlastní domácí výroby, jejichž původce Dubčekovo vedení nikdy veřejně neodsoudilo, s ohledem na jejich dlouholeté členství ve straně. Teď se vracely jako bumerang na naše hlavy.
+Autoři vyšli ze zásady, že má-li se lež stát pravdou, musí být co nejabsurdnější. Byla to fantastická sbírka falešných důkazů a zkreslených citátů, která měla zřejmě přesvědčit evropskou levici, že bratrský zásah zabránil pět minut před dvanáctou kontrarevolučnímu puči. Argumentem se staly i lži naší vlastní domácí výroby, jejichž původce Dubčekovo vedení nikdy veřejně neodsoudilo, s ohledem na jejich dlouholeté členství ve straně. Teď se vracely jako bumerang na naše hlavy.
 
-> „Starý komunista Jodas již na jaře říkal, že určitá reakční skupina ve straně, která je dobře organizována a ovládá veškeré sdělovací prostředky, sprostě útočí v televizi, rozhlase a tisku proti straně. Tato skupina, v níž aktivně působí různé reakční živly, provádí během pěti měsíců tuto kampaň, která neodvratně skončí zničením jednoty strany.“
+„Starý komunista Jodas již na jaře říkal, že určitá reakční skupina ve straně, která je dobře organizována a ovládá veškeré sdělovací prostředky, sprostě útočí v televizi, rozhlase a tisku proti straně. Tato skupina, v níž aktivně působí různé reakční živly, provádí během pěti měsíců tuto kampaň, která neodvratně skončí zničením jednoty strany.“
 
-> Přeladil jsem. Povědomý hlas četl prohlášení vlády všemu lidu Československa.
+Přeladil jsem. Povědomý hlas četl prohlášení vlády všemu lidu Československa.
 
-> „Tak se poprvé v dějinách mezinárodního komunistického hnutí odehrál akt represe, provedený spojeneckými armádami socialistických zemí proti státu řízenému komunistickou stranou.“
+„Tak se poprvé v dějinách mezinárodního komunistického hnutí odehrál akt represe, provedený spojeneckými armádami socialistických zemí proti státu řízenému komunistickou stranou.“
 
-> Smysl textu mi začal unikat. Fascinoval mne ten hlas. Musel patřit někomu, koho jsem důvěrně znal. Zavřel jsem oči a okamžitě spatřil jeho tvář.
+Smysl textu mi začal unikat. Fascinoval mne ten hlas. Musel patřit někomu, koho jsem důvěrně znal. Zavřel jsem oči a okamžitě spatřil jeho tvář.
 
-> Kdybych byl vyladil Prahu ještě v tom úředním bytě, mohli jsme být všichni pohromadě. Tři mušketýři po dvaceti letech. Jeho osud byl nejpohnutější.
+Kdybych byl vyladil Prahu ještě v tom úředním bytě, mohli jsme být všichni pohromadě. Tři mušketýři po dvaceti letech. Jeho osud byl nejpohnutější.
 
-> Blížila se půlnoc. Poslech začal být velmi jasný, nebýt podivného praskání, které nepřipomínalo atmosférickou poruchu. Teprve po chvíli jsem si s ustrnutím uvědomil, že jsou to série výstřelů. Navzdory tropickému horku mne zamrazilo.
+Blížila se půlnoc. Poslech začal být velmi jasný, nebýt podivného praskání, které nepřipomínalo atmosférickou poruchu. Teprve po chvíli jsem si s ustrnutím uvědomil, že jsou to série výstřelů. Navzdory tropickému horku mne zamrazilo.
 
-> Odkud ten dávný přítel mluví? Přestěhovali se snad zase do Husova sboru? Nač asi myslí v přestávkách mezi zprávami, v provizorní hlasatelně, jejíž zdi prostupuje rachot kulometných dávek? Na těch svých šest ztracených let v podzemí uranového dolu? Jak je mohl vůbec přežít? Když jsme ho tenkrát po válce vytáhli na jedinou kladenskou šichtu, měl takový strach, že byl pod mourem bílý jako křída. Čeho se bojí dnes?
+Odkud ten dávný přítel mluví? Přestěhovali se snad zase do Husova sboru? Nač asi myslí v přestávkách mezi zprávami, v provizorní hlasatelně, jejíž zdi prostupuje rachot kulometných dávek? Na těch svých šest ztracených let v podzemí uranového dolu? Jak je mohl vůbec přežít? Když jsme ho tenkrát po válce vytáhli na jedinou kladenskou šichtu, měl takový strach, že byl pod mourem bílý jako křída. Čeho se bojí dnes?
 
-> Jeho hlas zněl však vážně a klidně.
+Jeho hlas zněl však vážně a klidně.
 
-> „Občané a občanky, ještě je v naší moci dokončit velké dílo obrody socialismu, které jsme zahájili v lednu. Neuchylujte se k násilným akcím proti okupantům, nedejte se vyprovokovat silami, které si chtějí dodatečně obstarat důkazy pro oprávněnost intervence. Žijeme těžké hodiny. Učiňme vše, abychom z nich vyšli se vztyčenou hlavou a s rovnou páteří!“
+„Občané a občanky, ještě je v naší moci dokončit velké dílo obrody socialismu, které jsme zahájili v lednu. Neuchylujte se k násilným akcím proti okupantům, nedejte se vyprovokovat silami, které si chtějí dodatečně obstarat důkazy pro oprávněnost intervence. Žijeme těžké hodiny. Učiňme vše, abychom z nich vyšli se vztyčenou hlavou a s rovnou páteří!“
 
-> Ze zpráv vyplývala otřesná bilance čtyřiadvaceti hodin. Dubček, Smrkovský, Černík, Kriegel a další – nezvěstní. Pre­zident izolován na Hradě. Republika byla v tomto okamžiku nestřeženým sudem prachu, který mohl prakticky kdokoli přivést k explozi. Ze všech hlasů, které tomu mohly zabránit, zbyl právě jediný.
+Ze zpráv vyplývala otřesná bilance čtyřiadvaceti hodin. Dubček, Smrkovský, Černík, Kriegel a další – nezvěstní. Pre­zident izolován na Hradě. Republika byla v tomto okamžiku nestřeženým sudem prachu, který mohl prakticky kdokoli přivést k explozi. Ze všech hlasů, které tomu mohly zabránit, zbyl právě jediný.
 
-> Ten jeho.
+Ten jeho.
 
-> Přišlo mi fantastické, že právě on, který měl deset dobrých důvodů zamknout se doma a čekat, jak to skončí, drží dnes v noci tu těžkou, riskantní stráž u národního pokladu rozumu a svědomí.
+Přišlo mi fantastické, že právě on, který měl deset dobrých důvodů zamknout se doma a čekat, jak to skončí, drží dnes v noci tu těžkou, riskantní stráž u národního pokladu rozumu a svědomí.
 
-> Tisíc kilometrů od něho, za třemi hranicemi, odsouzen k bezmocnému bezpečí, jsem se rozhodl držet ji s ním. Roz­hlasová vlna mi připadala jako lano, kterým jsou k sobě připoutáni horolezci zastižení mlhou. Šplhal dál a já jsem ho jistil soustředěnou myslí…
+Tisíc kilometrů od něho, za třemi hranicemi, odsouzen k bezmocnému bezpečí, jsem se rozhodl držet ji s ním. Roz­hlasová vlna mi připadala jako lano, kterým jsou k sobě připoutáni horolezci zastižení mlhou. Šplhal dál a já jsem ho jistil soustředěnou myslí…
 
-> Vzbudil mne vrátný, který považoval za svou povinnost sdělit mi v šest hodin ráno, že Praha nepřišla. Také hlas přítele už pohltilo svítání.
+Vzbudil mne vrátný, který považoval za svou povinnost sdělit mi v šest hodin ráno, že Praha nepřišla. Také hlas přítele už pohltilo svítání.
 
-> – Pojď něco dělat, řekl jsem jí, – nebo se zblázníme.
+– Pojď něco dělat, řekl jsem jí, – nebo se zblázníme.
 
-> Učinili jsme pokus pokračovat v prázdninách. Skončil, když jsme v kamenné podlaze vatikánského Dómu, kde jsou vyznačeny délky světových katedrál, objevili kótu Svatého Víta.
+Učinili jsme pokus pokračovat v prázdninách. Skončil, když jsme v kamenné podlaze vatikánského Dómu, kde jsou vyznačeny délky světových katedrál, objevili kótu Svatého Víta.
 
-> Zavřel jsem oči. Otočil jsem se. Popaměti jsem ušel těch dvě stě kroků skrz chrámové dveře, přes hradní nádvoří, k Matyášově bráně. Na Hradčanském náměstí, v líbezném čtverci barokních a renesančních portálů, stál řetěz ocelových oblud. Dělové hlavně mířily k oknům mého bytu. Proti modrému stropu, který se mnou putuje od chlapeckých let jako malá soukromá obloha, křehce zářil růžovobílý fajánsový lustr z Karlových Varů, první, co jsme kdy koupili spolu. Pak zadunění.
+Zavřel jsem oči. Otočil jsem se. Popaměti jsem ušel těch dvě stě kroků skrz chrámové dveře, přes hradní nádvoří, k Matyášově bráně. Na Hradčanském náměstí, v líbezném čtverci barokních a renesančních portálů, stál řetěz ocelových oblud. Dělové hlavně mířily k oknům mého bytu. Proti modrému stropu, který se mnou putuje od chlapeckých let jako malá soukromá obloha, křehce zářil růžovobílý fajánsový lustr z Karlových Varů, první, co jsme kdy koupili spolu. Pak zadunění.
 
-> V klenbě San Pietra krouživě dozníval úder zvonu. Klečela vedle mne na svatovítské kótě a modlila se pokorně i úporně, jak to činívají ti, kdo po letech v úzkosti hledají svého zapomenutého Boha.
+V klenbě San Pietra krouživě dozníval úder zvonu. Klečela vedle mne na svatovítské kótě a modlila se pokorně i úporně, jak to činívají ti, kdo po letech v úzkosti hledají svého zapomenutého Boha.
 
-> Ještě jeden pokus uniknout přítomnosti dál proti proudu času. Snad nás alespoň na pár minut ohromí Colosseo, ten dvoutisíciletý titánský souboj lidského díla se slunečním žárem! Ne… měl jsem prostě beznadějně jinou optiku, viděl jsem jen deprimující pomník pomíjivosti. Panebože, když zanikl velký Řím, jakou šanci jsme vůbec měli my?
+Ještě jeden pokus uniknout přítomnosti dál proti proudu času. Snad nás alespoň na pár minut ohromí Colosseo, ten dvoutisíciletý titánský souboj lidského díla se slunečním žárem! Ne… měl jsem prostě beznadějně jinou optiku, viděl jsem jen deprimující pomník pomíjivosti. Panebože, když zanikl velký Řím, jakou šanci jsme vůbec měli my?
 
-> V antickém interiéru, na jehož vlhkých kamenech jako by dosud lpěl předsmrtný pot lidí i šelem, byl ohavný bar s lednicí, ale také chládek, studená coca-cola a především noviny ve srozumitelném jazyku. Světový deník Neue Züricher Zeitung věnoval Československu plných šest stran. Chvílemi jsem jí překládal. Naše deprese nepochopitelně vzrůstala. Všechno, úplně všechno bylo přece obsaženo v krátkém výkřiku kamelota z Perugie. Ale zřejmě teprve podrobnosti, i nejbanálnější, vyvolávají hlubinnou reakci a ochromují.
+V antickém interiéru, na jehož vlhkých kamenech jako by dosud lpěl předsmrtný pot lidí i šelem, byl ohavný bar s lednicí, ale také chládek, studená coca-cola a především noviny ve srozumitelném jazyku. Světový deník Neue Züricher Zeitung věnoval Československu plných šest stran. Chvílemi jsem jí překládal. Naše deprese nepochopitelně vzrůstala. Všechno, úplně všechno bylo přece obsaženo v krátkém výkřiku kamelota z Perugie. Ale zřejmě teprve podrobnosti, i nejbanálnější, vyvolávají hlubinnou reakci a ochromují.
 
-> Autobus nás vezl zpátky kolem Tibery. Věčné město běželo však už podruhé za okny jako nezajímavý, ohraný film bez titulků a beze zvuku.
+Autobus nás vezl zpátky kolem Tibery. Věčné město běželo však už podruhé za okny jako nezajímavý, ohraný film bez titulků a beze zvuku.
 
-> Naprosto automaticky jsme opět dorazili k vyslanectví. Potřebovali jsme být mezi svými, slyšet známou řeč. Byl to odvěký atavismus: sdílet zoufalství i naději v houfu, se svým kmenem.
+Naprosto automaticky jsme opět dorazili k vyslanectví. Potřebovali jsme být mezi svými, slyšet známou řeč. Byl to odvěký atavismus: sdílet zoufalství i naději v houfu, se svým kmenem.
 
-> Trvalé napětí a nejistota do něho vpisovaly zřetelné stopy. Ženy měly neupravené vlasy, mužům rašila na tvářích strniska. Přejel jsem si dlaní bradu. Poprvé po letech jsem se zapomněl oholit. Rehabilitovaný důstojník z Bratislavy vypadal přes tu noc jako stařec.
+Trvalé napětí a nejistota do něho vpisovaly zřetelné stopy. Ženy měly neupravené vlasy, mužům rašila na tvářích strniska. Přejel jsem si dlaní bradu. Poprvé po letech jsem se zapomněl oholit. Rehabilitovaný důstojník z Bratislavy vypadal přes tu noc jako stařec.
 
-> Právě otevřeli. Vecpali jsme se do haly, k patě mohutného schodiště. Sedli jsme si na nejnižší schod. Pracovník vyslanectví držel řeč. Úřad měl zřejmě panickou hrůzu, že mu celá tahle horda zůstane na krku. Z toho vyplýval i tón projevu. Okupace se v něm jevila jako drobná domácí mrzutost.
+Právě otevřeli. Vecpali jsme se do haly, k patě mohutného schodiště. Sedli jsme si na nejnižší schod. Pracovník vyslanectví držel řeč. Úřad měl zřejmě panickou hrůzu, že mu celá tahle horda zůstane na krku. Z toho vyplýval i tón projevu. Okupace se v něm jevila jako drobná domácí mrzutost.
 
-> – Proč byste se nemohli vrátit? volal optimisticky. – Co by se vám mělo stát? Byli jste prostě na dovolené! Čeho se bojíte? Copak se někdo z vás politicky angažoval?
+– Proč byste se nemohli vrátit? volal optimisticky. – Co by se vám mělo stát? Byli jste prostě na dovolené! Čeho se bojíte? Copak se někdo z vás politicky angažoval?
 
-> V tu chvíli mne zahlédl a rázem se stal střízlivějším.
+V tu chvíli mne zahlédl a rázem se stal střízlivějším.
 
-> – Samozřejmě, každý si to musí rozvážit individuálně…!
+– Samozřejmě, každý si to musí rozvážit individuálně…!
 
-> Poznalo mne i několik dalších turistů. Obklopili nás.
+Poznalo mne i několik dalších turistů. Obklopili nás.
 
-> – Co budete dělat?
+– Co budete dělat?
 
-> Tak prostá, tak základní otázka. Jak to, že jsem si ji do téhle chvíle nepoložil? Co vlastně hledám v Římě? Teď už jsem mohl být na hranicích! Proč jsem tam nejel rovnou z Perugie? Měl jsem v hlavě naprostý zmatek. Přesto jsem odpověděl s jistotou.
+Tak prostá, tak základní otázka. Jak to, že jsem si ji do téhle chvíle nepoložil? Co vlastně hledám v Římě? Teď už jsem mohl být na hranicích! Proč jsem tam nejel rovnou z Perugie? Měl jsem v hlavě naprostý zmatek. Přesto jsem odpověděl s jistotou.
 
-> – Chci domů.
+– Chci domů.
 
-> Viděl jsem, jak se jim ulevilo. Ulevilo se i mně. Nevěděl jsem dosud, zda mohu, ale věděl jsem už alespoň, že musím. Neměl jsem žádnou jinou volbu. Jsou situace, kdy spisovatel není ničím jiným než jedním z herců národního osudu. Rozhodně v Čechách. Bohužel i já. Změnit roli uprostřed kusu by znamenalo zradit obecenstvo a navždy ztratit tvář.
+Viděl jsem, jak se jim ulevilo. Ulevilo se i mně. Nevěděl jsem dosud, zda mohu, ale věděl jsem už alespoň, že musím. Neměl jsem žádnou jinou volbu. Jsou situace, kdy spisovatel není ničím jiným než jedním z herců národního osudu. Rozhodně v Čechách. Bohužel i já. Změnit roli uprostřed kusu by znamenalo zradit obecenstvo a navždy ztratit tvář.
 
-> Reagovali spontánně.
+Reagovali spontánně.
 
-> – To chceme všichni. Ale dostaneme se tam?
+– To chceme všichni. Ale dostaneme se tam?
 
-> Vznikl dlouhý spor nadšenců se skeptiky. Nadšenci postupně navrhovali: přejet společně, nechat auta v Rakousku a přejít pěšky, vyslat napřed delegaci, požádat o doprovod švýcarský Červený kříž, přeplavat Dyji ve člunech či prostě přemluvit naše pohraničníky, aby nás nechali projít.
+Vznikl dlouhý spor nadšenců se skeptiky. Nadšenci postupně navrhovali: přejet společně, nechat auta v Rakousku a přejít pěšky, vyslat napřed delegaci, požádat o doprovod švýcarský Červený kříž, přeplavat Dyji ve člunech či prostě přemluvit naše pohraničníky, aby nás nechali projít.
 
-> Muž, který navrhoval předposlední variantu, byl přirozeně z Moravy. Doprovázel nás pak ještě se svou rodinou k hotelu. On, žena i dcera byli dost nevhodně v koupacích pláštích. Děvče drželo v náručí nesmyslně dlouhou lepenkovou krabici. I tady, ve svobodomyslném Římě, působili výstředně. Stáli jsme dlouho před hotelem, a on se stále dožadoval podpory pro svou myšlenku.
+Muž, který navrhoval předposlední variantu, byl přirozeně z Moravy. Doprovázel nás pak ještě se svou rodinou k hotelu. On, žena i dcera byli dost nevhodně v koupacích pláštích. Děvče drželo v náručí nesmyslně dlouhou lepenkovou krabici. I tady, ve svobodomyslném Římě, působili výstředně. Stáli jsme dlouho před hotelem, a on se stále dožadoval podpory pro svou myšlenku.
 
-> Viděl jsem na Z., že je unavená. Zdvořile jsem se ho zeptal
+Viděl jsem na Z., že je unavená. Zdvořile jsem se ho zeptal
 
-> – Kde máte vůz?
+– Kde máte vůz?
 
-> Pak jsme zažili šok. Ukázalo se, že jim ho včera v Benátkách ukradli se všemi věcmi, když si odskočili na pláž. Zůstaly jím jen koupací pláště a obrovská gondola, kterou si krátce před tím koupili jako suvenýr. Když v naprostém zoufalství dorazili na policii, dozvěděli se, že kromě auta ztratili ještě vlast. Druhá rána zřejmě přehlušila první. Zeptal jsem se, jak se teď dostanou domů.
+Pak jsme zažili šok. Ukázalo se, že jim ho včera v Benátkách ukradli se všemi věcmi, když si odskočili na pláž. Zůstaly jím jen koupací pláště a obrovská gondola, kterou si krátce před tím koupili jako suvenýr. Když v naprostém zoufalství dorazili na policii, dozvěděli se, že kromě auta ztratili ještě vlast. Druhá rána zřejmě přehlušila první. Zeptal jsem se, jak se teď dostanou domů.
 
-> – Bože, naši nás tam přece musí pustit! odpověděl.
+– Bože, naši nás tam přece musí pustit! odpověděl.
 
-> Pomoc odmítl. Ukázalo se, že mají pokoj nad námi. Amba­sáda se přece jenom probouzela z mrákot.
+Pomoc odmítl. Ukázalo se, že mají pokoj nad námi. Amba­sáda se přece jenom probouzela z mrákot.
 
-> Když jsem vyzvedával v recepci klíč, dostal jsem dopis.
+Když jsem vyzvedával v recepci klíč, dostal jsem dopis.
 
-> „Je mi to líto, nechtěl jsem tě urazit. Strašně rád bych s tebou mluvil. Jednáme s italskou partají. Stavím se krátce po poledni. Zatím rozhodně zůstaň, na hranicích jsou Rusové. Pozdravuj tu svou báječnou ženskou!“
+„Je mi to líto, nechtěl jsem tě urazit. Strašně rád bych s tebou mluvil. Jednáme s italskou partají. Stavím se krátce po poledni. Zatím rozhodně zůstaň, na hranicích jsou Rusové. Pozdravuj tu svou báječnou ženskou!“
 
-> Četla mi přes rameno.
+Četla mi přes rameno.
 
-> – Jdi si lehnout, řekl jsem, – dám si venku kávu.
+– Jdi si lehnout, řekl jsem, – dám si venku kávu.
 
-> Položila klíč na pult.
+Položila klíč na pult.
 
-> – Vlastně mám hlad. Půjdu s tebou.
+– Vlastně mám hlad. Půjdu s tebou.
 
-> Byl jsem příliš ztupělý, než abych to komentoval. Když jsem se už otáčel, padl můj zrak na dopis pohozený v rohu recepčního pultu. Na obálce byl vyražen jakýsi povědomý pták. Při pokusu o jeho identifikaci jsem s údivem spatřil vedle něho své jméno.
+Byl jsem příliš ztupělý, než abych to komentoval. Když jsem se už otáčel, padl můj zrak na dopis pohozený v rohu recepčního pultu. Na obálce byl vyražen jakýsi povědomý pták. Při pokusu o jeho identifikaci jsem s údivem spatřil vedle něho své jméno.
 
-> Když jsem to recepčnímu vytkl, odtušil, že u nich se ještě nikdy nic neztratilo, o čemž nově svědčí, že svůj dopis držím v ruce. Raději jsem roztrhl obálku. Pták byl orel, onoho druhu, který se vyskytuje pouze v Americe, a i tam jen na státním znaku USA.
+Když jsem to recepčnímu vytkl, odtušil, že u nich se ještě nikdy nic neztratilo, o čemž nově svědčí, že svůj dopis držím v ruce. Raději jsem roztrhl obálku. Pták byl orel, onoho druhu, který se vyskytuje pouze v Americe, a i tam jen na státním znaku USA.
 
-> „Dear Sir,“ psal mi zdejší kulturní atašé, „právě jsme pro Vás obdrželi depeši ze Státní univerzity v lowě, stát Iowa. Díky laskavému zprostředkování Vašeho velvyslanectví Vám ji můžeme ihned doručit a očekáváme Vaši ctěnou odpověď.
+„Dear Sir,“ psal mi zdejší kulturní atašé, „právě jsme pro Vás obdrželi depeši ze Státní univerzity v lowě, stát Iowa. Díky laskavému zprostředkování Vašeho velvyslanectví Vám ji můžeme ihned doručit a očekáváme Vaši ctěnou odpověď.
 
-> DEAR SIR CARKA STATNI UNIVERZITA OF IOWA STAT IOWA VAS ZVE K UCASTI NA ROCNIM KURZU PRO MLADE SPISOVATELE Z CELEHO SVETA TECKA JE TO NAS STARY PROJEKT CARKA KTERY JSME SE ROZHODLI USPISIT S OHLEDEM NA PRO VAS TAK TRAGICKE OKOLNOSTI TECKA CESTA I POBYT BUDOU HRAZENY STATNI UNIVERZITOU OF IOWA STAT IOWA STRED­NIK TAKTEZ OBDRZITE MESICNI STIPENDIUM 4 000 DOLARU TECKA V OCEKAVANI VASI OKAMZITE ODPOVEDI YOURS SINCERELY STATNI UNIVERZITA OF IOWA STAT IOWA END+++“
+DEAR SIR CARKA STATNI UNIVERZITA OF IOWA STAT IOWA VAS ZVE K UCASTI NA ROCNIM KURZU PRO MLADE SPISOVATELE Z CELEHO SVETA TECKA JE TO NAS STARY PROJEKT CARKA KTERY JSME SE ROZHODLI USPISIT S OHLEDEM NA PRO VAS TAK TRAGICKE OKOLNOSTI TECKA CESTA I POBYT BUDOU HRAZENY STATNI UNIVERZITOU OF IOWA STAT IOWA STRED­NIK TAKTEZ OBDRZITE MESICNI STIPENDIUM 4 000 DOLARU TECKA V OCEKAVANI VASI OKAMZITE ODPOVEDI YOURS SINCERELY STATNI UNIVERZITA OF IOWA STAT IOWA END+++“
 
-> V tom okamžiku jsem nevěděl co dělat nebo říct.
+V tom okamžiku jsem nevěděl co dělat nebo říct.
 
-> – Vidíš, kdyby sis mě vzal, řekla, – nezbylo by jim než pozvat i mě. Teď musíme jednu cestu platit sami.
+– Vidíš, kdyby sis mě vzal, řekla, – nezbylo by jim než pozvat i mě. Teď musíme jednu cestu platit sami.
 
-> – Děkuju ti, řekl jsem, – takový argument jsem právě hledal.
+– Děkuju ti, řekl jsem, – takový argument jsem právě hledal.
 
-> Napsal jsem na hotelový papír, že jsem poctěn a vděčen, nezdržuji se tu však sám, nýbrž s doprovodem své ženy, pročež vycházím z toho, že i velkorysost à l’americaine má své meze.
+Napsal jsem na hotelový papír, že jsem poctěn a vděčen, nezdržuji se tu však sám, nýbrž s doprovodem své ženy, pročež vycházím z toho, že i velkorysost à l’americaine má své meze.
 
-> Počkal jsem, dokud recepční v mé přítomnosti nepřediktoval sdělení poště. Ona se pohroužila do prohlížení nabídkové vitríny, která byla právě prázdná.
+Počkal jsem, dokud recepční v mé přítomnosti nepřediktoval sdělení poště. Ona se pohroužila do prohlížení nabídkové vitríny, která byla právě prázdná.
 
-> Ristorante byl na chodníku hned vedle hotelu. Stolky při zdi byly ve stínu, ale chládek jen fiktivní. Dal jsem si mraženou kávu, na nic jiného jsem neměl ani pomyšlení. Objednala si spaghetti milanese a půl litru bílého vína. Žádná společenská ani živelná pohroma nemohla ohrozit její chuť k jídlu.
+Ristorante byl na chodníku hned vedle hotelu. Stolky při zdi byly ve stínu, ale chládek jen fiktivní. Dal jsem si mraženou kávu, na nic jiného jsem neměl ani pomyšlení. Objednala si spaghetti milanese a půl litru bílého vína. Žádná společenská ani živelná pohroma nemohla ohrozit její chuť k jídlu.
 
-> Od dialogu v Perugii jsme si spolu vyměňovali jen nej­nutnější věty. Teď jsme zmlkli docela. Nevadilo mi to. V duchu jsem znovu viděl ty tři v koupacích pláštích a s nesmyslnou gondolou, unaveného muže ve vojenských kalhotách i jeho plačící ženu, celý ten náhodný sociologický vzorek občanů obléhajících vyslanectví. Kolik z nich asi zachytil a poranil nelidský mechanismus deformací, kolík jich čekalo až do letošního jara na omluvu, odškodnění, na důstojnou práci, na cestovní pas. A přece za ty dlouhé hodiny ani jedna výčitka, a přece až fanatická důvěra, že především komunisté, ano, komunisté tam doma ubrání tu naději všech, které se začalo říkat socialismus s lidskou tváří! Kolikrát jsem za dnešek slyšel větu:
+Od dialogu v Perugii jsme si spolu vyměňovali jen nej­nutnější věty. Teď jsme zmlkli docela. Nevadilo mi to. V duchu jsem znovu viděl ty tři v koupacích pláštích a s nesmyslnou gondolou, unaveného muže ve vojenských kalhotách i jeho plačící ženu, celý ten náhodný sociologický vzorek občanů obléhajících vyslanectví. Kolik z nich asi zachytil a poranil nelidský mechanismus deformací, kolík jich čekalo až do letošního jara na omluvu, odškodnění, na důstojnou práci, na cestovní pas. A přece za ty dlouhé hodiny ani jedna výčitka, a přece až fanatická důvěra, že především komunisté, ano, komunisté tam doma ubrání tu naději všech, které se začalo říkat socialismus s lidskou tváří! Kolikrát jsem za dnešek slyšel větu:
 
-> – Kdyby se tak dokázal sejít ten sjezd!
+– Kdyby se tak dokázal sejít ten sjezd!
 
-> Ze všech zemí, kde byla buržoazie poražena, byl socialismus nejpřirozeněji zakořeněn v Československu! Ze všech selhání a omylů revolučního hnutí od říjnové revoluce do dneška je tenhle nejtragičtější!
+Ze všech zemí, kde byla buržoazie poražena, byl socialismus nejpřirozeněji zakořeněn v Československu! Ze všech selhání a omylů revolučního hnutí od říjnové revoluce do dneška je tenhle nejtragičtější!
 
-> Kdo je tu kontrarevolucionář?
+Kdo je tu kontrarevolucionář?
 
-> Snad ona?
+Snad ona?
 
-> Ano, vyčítala, ano, urážela, vinila mne ze všech smrtelných hříchů od závislosti na Moskvě až k nízké dojivosti krav, a vím, že její hlas byl dokonce hlasem generace, když se ptal, proč jsme odsouzeni k socialismu na kontinentě, kde existuje Švýcarsko a Švédsko.
+Ano, vyčítala, ano, urážela, vinila mne ze všech smrtelných hříchů od závislosti na Moskvě až k nízké dojivosti krav, a vím, že její hlas byl dokonce hlasem generace, když se ptal, proč jsme odsouzeni k socialismu na kontinentě, kde existuje Švýcarsko a Švédsko.
 
-> Ale byl to opravdu socialismus, co odmítali – to spiknutí neschopných, to carství bodré průměrností, stvořené k obrazu Antonína Novotného?
+Ale byl to opravdu socialismus, co odmítali – to spiknutí neschopných, to carství bodré průměrností, stvořené k obrazu Antonína Novotného?
 
-> Jakmile jsme vyjevili tu prostou pravdu, že král je nahý, jakmile politika opět vyšla z kuchyně u Novotných na náměstí a osvobozené mozky začaly vracet revoluci čistotu i program, byla se mnou, byli s námi.
+Jakmile jsme vyjevili tu prostou pravdu, že král je nahý, jakmile politika opět vyšla z kuchyně u Novotných na náměstí a osvobozené mozky začaly vracet revoluci čistotu i program, byla se mnou, byli s námi.
 
-> Pro tu šanci – vyslat nové poselství světu, poselství z rodu těch, k jakým se národy vzepnou třeba jen jednou ve svých dějinách.
+Pro tu šanci – vyslat nové poselství světu, poselství z rodu těch, k jakým se národy vzepnou třeba jen jednou ve svých dějinách.
 
-> Na okamžik jsem ji spatřil v té březnové noci, znovu jsem uslyšel její užaslý hlas.
+Na okamžik jsem ji spatřil v té březnové noci, znovu jsem uslyšel její užaslý hlas.
 
-> – Proboha, ono se ve všech oknech svítí…
+– Proboha, ono se ve všech oknech svítí…
 
-> A to nenávistné krédo z Perugie?
+A to nenávistné krédo z Perugie?
 
-> Bohužel… kdybych byl bankéř, byla by stejně vášnivě napadla kapitalismus. Politika byla v tu chvíli jen zástupným tématem lásky. Nebo nelásky?
+Bohužel… kdybych byl bankéř, byla by stejně vášnivě napadla kapitalismus. Politika byla v tu chvíli jen zástupným tématem lásky. Nebo nelásky?
 
-> To byla jiná kapitola. Na ni jsem teď nechtěl myslet.
+To byla jiná kapitola. Na ni jsem teď nechtěl myslet.
 
 * * *
 
@@ -2048,187 +2048,187 @@ S tebou, lásko.
 Čtvrtek 22. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
-> Přestože jsme ulehli každý do své postele, probudil jsem se v jejím objetí. Naše těla se ve spánku přisunula k sobě, jak tomu uvykla za tisíc společných nocí. Noční košilka, kterou opět neopomněla obléknout, se svezla k opálenému břichu, jak přitáhla kolena až skoro k bradě. Zaujímala pokaždé onu jímavou polohu lidského plodu, z níž se člověk tak zbytečně rychle napřimuje do polohy vhodné pro rakev. Vracela se do stavu předporodní blaženosti každou noc, celých šestadvacet let, jako by se tak chtěla chránit před smrtí a všemi špatnostmi světa.
+Přestože jsme ulehli každý do své postele, probudil jsem se v jejím objetí. Naše těla se ve spánku přisunula k sobě, jak tomu uvykla za tisíc společných nocí. Noční košilka, kterou opět neopomněla obléknout, se svezla k opálenému břichu, jak přitáhla kolena až skoro k bradě. Zaujímala pokaždé onu jímavou polohu lidského plodu, z níž se člověk tak zbytečně rychle napřimuje do polohy vhodné pro rakev. Vracela se do stavu předporodní blaženosti každou noc, celých šestadvacet let, jako by se tak chtěla chránit před smrtí a všemi špatnostmi světa.
 
-> Obě okenice byly pevně uzavřeny, ale sluneční reflektor byl dosud tak přepálený, že i úzké paprsky pronikající mezi spárami udržovaly v pokoji vysokou hladinu světla. Vzdychla a začala se probouzet. Omámena spánkem myslela, že je ráno, a zapomněla náš spor.
+Obě okenice byly pevně uzavřeny, ale sluneční reflektor byl dosud tak přepálený, že i úzké paprsky pronikající mezi spárami udržovaly v pokoji vysokou hladinu světla. Vzdychla a začala se probouzet. Omámena spánkem myslela, že je ráno, a zapomněla náš spor.
 
-> – Dneska se mi celou noc zdálo, že jsme byli v ilegalitě a měli jsme se spojit s Dubčekem… A věděli jsme jenom určitě, že je schovanej v takovým pletařským krámku, co se prodávají dráty a vlny…, a tak jsme tam za ním šlí a pořád jsme si mysleli, že bude mezi prodavačkama schovanej, že je maskovanej jako jedna z nich, ale vůbec jsme ho nemohli najít tam a pořád jsme hledali a žádná prodavačka nebyl Dubček, až teprve pak jsme zjistili, že on je daleko mazanější, protože se postavil do výkladu jako taková panna a držel… jak se tomu říká…?
+– Dneska se mi celou noc zdálo, že jsme byli v ilegalitě a měli jsme se spojit s Dubčekem… A věděli jsme jenom určitě, že je schovanej v takovým pletařským krámku, co se prodávají dráty a vlny…, a tak jsme tam za ním šlí a pořád jsme si mysleli, že bude mezi prodavačkama schovanej, že je maskovanej jako jedna z nich, ale vůbec jsme ho nemohli najít tam a pořád jsme hledali a žádná prodavačka nebyl Dubček, až teprve pak jsme zjistili, že on je daleko mazanější, protože se postavil do výkladu jako taková panna a držel… jak se tomu říká…?
 
-> – Klubko…
+– Klubko…
 
-> – Ne, ne, přadeno! Přadeno držel a z toho se odvíjela nit, a byl tam kolovrátek a židle, a on nám řek: Nikdo si nechce sednout ke kolovrátku a příst mou nit. A plakal.
+– Ne, ne, přadeno! Přadeno držel a z toho se odvíjela nit, a byl tam kolovrátek a židle, a on nám řek: Nikdo si nechce sednout ke kolovrátku a příst mou nit. A plakal.
 
-> – A ty sis tam sedla.
+– A ty sis tam sedla.
 
-> – Já jsem se probudila v tu chvíli.
+– Já jsem se probudila v tu chvíli.
 
-> – A co to znamená, vykladačko?
+– A co to znamená, vykladačko?
 
-> – To je smutnej sen. Babičce se zdálo o kolovrátku, když byl dědeček v Rusku. A taky dostala psaní hned, že byl zajatej.
+– To je smutnej sen. Babičce se zdálo o kolovrátku, když byl dědeček v Rusku. A taky dostala psaní hned, že byl zajatej.
 
-> – Ale dědeček se snad vrátil, ne? Jinak by se nenarodila maminka!
+– Ale dědeček se snad vrátil, ne? Jinak by se nenarodila maminka!
 
-> – Maminka by se asi i bez dědečka narodila. Ale třeba v tom nebyla ta nit…
+– Maminka by se asi i bez dědečka narodila. Ale třeba v tom nebyla ta nit…
 
-> – Co znamená nit?
+– Co znamená nit?
 
-> – Nit je neštěstí dlouhý. A když se přetrhne, je z ní smrt.
+– Nit je neštěstí dlouhý. A když se přetrhne, je z ní smrt.
 
-> – Ale ona se nepřetrhla.
+– Ale ona se nepřetrhla.
 
-> – Protože jsem se probudila.
+– Protože jsem se probudila.
 
-> – To nevadí! Vždycky platí přece, jen co je ve snu. Náhodou ses probudila včas!
+– To nevadí! Vždycky platí přece, jen co je ve snu. Náhodou ses probudila včas!
 
-> – Já vždycky probouzím se včas… na rozdíl od jinejch…
+– Já vždycky probouzím se včas… na rozdíl od jinejch…
 
-> S připlouvajícím vědomím se vracela skutečnost. Pomalu, na etapy, jakoby bezděky natahovala nohy, shrnutá košile jí dala dobrou záminku, aby osvobodila i své ruce. Mezi našimi těly začaly opět neslyšně proudit chladné vody Suezu, oddělující nepřátelské břehy.
+S připlouvajícím vědomím se vracela skutečnost. Pomalu, na etapy, jakoby bezděky natahovala nohy, shrnutá košile jí dala dobrou záminku, aby osvobodila i své ruce. Mezi našimi těly začaly opět neslyšně proudit chladné vody Suezu, oddělující nepřátelské břehy.
 
-> – Kolik je? zeptala se.
+– Kolik je? zeptala se.
 
-> – Budou čtyři.
+– Budou čtyři.
 
-> – Máš opravdu báječnýho kamaráda.
+– Máš opravdu báječnýho kamaráda.
 
-> – Slíbil navštívit mě, ne tebe.
+– Slíbil navštívit mě, ne tebe.
 
-> – Ano. A proto jsem se nemohla jít koupat.
+– Ano. A proto jsem se nemohla jít koupat.
 
-> – Neměl jsem tušení, že ses chtěla dneska koupat.
+– Neměl jsem tušení, že ses chtěla dneska koupat.
 
-> – Třeba zapomněl jsi, že jsme sem proto jeli.
+– Třeba zapomněl jsi, že jsme sem proto jeli.
 
-> – Zdálo se mi, že máme nějaké starosti.
+– Zdálo se mi, že máme nějaké starosti.
 
-> – Můžu se koupat, i když mám starosti.
+– Můžu se koupat, i když mám starosti.
 
-> – A kdo brání ti? napodobil jsem její náročný slovosled.
+– A kdo brání ti? napodobil jsem její náročný slovosled.
 
-> – Nechodím se koupat sama ani v Praze.
+– Nechodím se koupat sama ani v Praze.
 
-> – Se mnou jsi dneska sotva mohla počítat.
+– Se mnou jsi dneska sotva mohla počítat.
 
-> – S tebou já taky nepočítala. Čekala jsem na tvého kamaráda.
+– S tebou já taky nepočítala. Čekala jsem na tvého kamaráda.
 
-> – Myslím, že má taky jiné starosti.
+– Myslím, že má taky jiné starosti.
 
-> – Myslíš?
+– Myslíš?
 
-> Mé podráždění opět rostlo. Chtěl jsem rozvést myšlenku, že sympatie, které k němu zřejmě pojala, jsou při jeho starobolševickém vyznání naprosto nelogické a že by je, pokud se jí líbí jako chlap, alespoň nemusela dávat najevo tak vesnicky. Dřív se však ozvalo zaklepání a téměř současně vstoupil do pokoje recepční. Díval se na ni se zřejmým zalíbením. Vyjekla, a protože ležela na pokrývce, kterou tak nemohla použít, svezla se na zem za postel.
+Mé podráždění opět rostlo. Chtěl jsem rozvést myšlenku, že sympatie, které k němu zřejmě pojala, jsou při jeho starobolševickém vyznání naprosto nelogické a že by je, pokud se jí líbí jako chlap, alespoň nemusela dávat najevo tak vesnicky. Dřív se však ozvalo zaklepání a téměř současně vstoupil do pokoje recepční. Díval se na ni se zřejmým zalíbením. Vyjekla, a protože ležela na pokrývce, kterou tak nemohla použít, svezla se na zem za postel.
 
-> – Buon giorno. Un signore vuole parlare con Lei.
+– Buon giorno. Un signore vuole parlare con Lei.
 
-> Ustoupil, aby host mohl projít, a s úsměvem zavřel dveře.
+Ustoupil, aby host mohl projít, a s úsměvem zavřel dveře.
 
-> – Prokristapána, ať jde přece pryč! zaúpěla ze země.
+– Prokristapána, ať jde přece pryč! zaúpěla ze země.
 
-> – Krucinál…! zakoktal jadrnou češtinou, – sorry, já netušil…, počkám v tom bárku na ulici, bože, to je ale vůl!
+– Krucinál…! zakoktal jadrnou češtinou, – sorry, já netušil…, počkám v tom bárku na ulici, bože, to je ale vůl!
 
-> – Jsem na kongresu v Neapoli, řekl potom. – Co pijete v tuhle dobu?
+– Jsem na kongresu v Neapoli, řekl potom. – Co pijete v tuhle dobu?
 
-> – Doma nic, tady campari. Ale dneska si dám rád whisky.
+– Doma nic, tady campari. Ale dneska si dám rád whisky.
 
-> – Cameriere!
+– Cameriere!
 
-> Objednal italštinou, která mi přišla perfektní. Pak ho vrátil.
+Objednal italštinou, která mi přišla perfektní. Pak ho vrátil.
 
-> – Un momento… a vaše žena?
+– Un momento… a vaše žena?
 
-> – Nejspíš to campari.
+– Nejspíš to campari.
 
-> Protože tu ještě nebyla, mohl jsem to pro pořádek zkori­govat.
+Protože tu ještě nebyla, mohl jsem to pro pořádek zkori­govat.
 
-> – Není moje žena.
+– Není moje žena.
 
-> – Rozumím, řekl a chápavě na mě mrkl.
+– Rozumím, řekl a chápavě na mě mrkl.
 
-> – Myslím že ne. Ale na tom nezáleží…
+– Myslím že ne. Ale na tom nezáleží…
 
-> – Každopádně je to kus. Ještě se to tak v Praze říká? Teď mají asi jiný téma…! Já včera s hrůzou zjistil, že jsem pořád Čech jako poleno! Měli jsme mít normální briefing s Taliánama, přišel chief a vybalil to. A já z toho byl úplně down. Tak jsem dneska práskl do koní a přirazil k ambasádě, kdyby někdo z krajanů potřeboval radu nebo tak. Když tam někdo vyslovil vaše jméno, hned jsem si vzpomněl.
+– Každopádně je to kus. Ještě se to tak v Praze říká? Teď mají asi jiný téma…! Já včera s hrůzou zjistil, že jsem pořád Čech jako poleno! Měli jsme mít normální briefing s Taliánama, přišel chief a vybalil to. A já z toho byl úplně down. Tak jsem dneska práskl do koní a přirazil k ambasádě, kdyby někdo z krajanů potřeboval radu nebo tak. Když tam někdo vyslovil vaše jméno, hned jsem si vzpomněl.
 
-> Ještě mluvil, ale už se díval přes mou hlavu a vstával s výrazem nejvyššího obdivu. Stín slaměného klobouku ležel jako krajka přes její ňadra, bez podprsenky téměř obnažená v hlubokém výstřihu. Minisukně musel vymyslet muž, který spatřil její nohy.
+Ještě mluvil, ale už se díval přes mou hlavu a vstával s výrazem nejvyššího obdivu. Stín slaměného klobouku ležel jako krajka přes její ňadra, bez podprsenky téměř obnažená v hlubokém výstřihu. Minisukně musel vymyslet muž, který spatřil její nohy.
 
-> Bylo až fantastické, jak se mě to všecko netýkalo. Políbil jí ruku a znovu se omlouval.
+Bylo až fantastické, jak se mě to všecko netýkalo. Políbil jí ruku a znovu se omlouval.
 
-> – Pan inženýr, vysvětlil jsem jí, – vzal si sestru jedné mé dávné známé. Přišel nám nabídnout pomoc.
+– Pan inženýr, vysvětlil jsem jí, – vzal si sestru jedné mé dávné známé. Přišel nám nabídnout pomoc.
 
-> – To jste hodnej… a kde máte paní?
+– To jste hodnej… a kde máte paní?
 
-> – Loni mi umřela… na rakovinu plic. Sama ji léčila. A v životě nevzala do úst cigaretu!
+– Loni mi umřela… na rakovinu plic. Sama ji léčila. A v životě nevzala do úst cigaretu!
 
-> Ačkoliv celou tu dobu vypadal jako tvrdý, ostrý chlap, měl ve vteřině vlhké oči. Hlavou mi bleskla myšlenka, kdy budu smět znovu spatřit hrob svých rodičů.
+Ačkoliv celou tu dobu vypadal jako tvrdý, ostrý chlap, měl ve vteřině vlhké oči. Hlavou mi bleskla myšlenka, kdy budu smět znovu spatřit hrob svých rodičů.
 
-> Přestože nebyl ani trochu tlustý, vězel v tenkých italských šatech jako naditý. Měl vlasy Old Shatterhanda, důvěryhodné oči, široká ramena a bradu natrčenou stále vzhůru. Bylo neuvěřitelné, jak si umí příroda a práce uzpůsobit člověka k svému obrazu.
+Přestože nebyl ani trochu tlustý, vězel v tenkých italských šatech jako naditý. Měl vlasy Old Shatterhanda, důvěryhodné oči, široká ramena a bradu natrčenou stále vzhůru. Bylo neuvěřitelné, jak si umí příroda a práce uzpůsobit člověka k svému obrazu.
 
-> Teď se omlouvala ona. Mávl rukou, a bylo to pryč.
+Teď se omlouvala ona. Mávl rukou, a bylo to pryč.
 
-> – Když jsem tam v padesátým prvním dorazil, měl jsem akorát ten paper z techniky. Přečetl jsem si v novinách, že v Saskatchewanu vypsali konkurz na místo hydrologa, tak jsem si to střihnul stopem. Bratru čtyři tisíce mil. Dělal to se mnou Japonec, Anglán, dva Amerikáni a pět Kanaďanů. Když se skončilo, zavolali mě ti chlápci dovnitř a ptali se: Odkud že jste? No z Československa… Never heard of it! Kde to leží? Ach, v Evropě. Oukej. Tak tady máte plány, klíčky i pušku a jeďte rovnou do terénu! K čemu ty klíče? K tý káře, co stojí na dvoře; budem vám ji strhávat z platu. A ten kanón? No přece na medvědy. Není to fór? Dneska jsem hlavní hydrolog provincie, která je velká jako půl Evropy, a můj chief, když jsme včera čuměli na večerní news, brečel se mnou jako stará kurva…
+– Když jsem tam v padesátým prvním dorazil, měl jsem akorát ten paper z techniky. Přečetl jsem si v novinách, že v Saskatchewanu vypsali konkurz na místo hydrologa, tak jsem si to střihnul stopem. Bratru čtyři tisíce mil. Dělal to se mnou Japonec, Anglán, dva Amerikáni a pět Kanaďanů. Když se skončilo, zavolali mě ti chlápci dovnitř a ptali se: Odkud že jste? No z Československa… Never heard of it! Kde to leží? Ach, v Evropě. Oukej. Tak tady máte plány, klíčky i pušku a jeďte rovnou do terénu! K čemu ty klíče? K tý káře, co stojí na dvoře; budem vám ji strhávat z platu. A ten kanón? No přece na medvědy. Není to fór? Dneska jsem hlavní hydrolog provincie, která je velká jako půl Evropy, a můj chief, když jsme včera čuměli na večerní news, brečel se mnou jako stará kurva…
 
-> Bylo obdivuhodné, že po sedmnácti letech, až na ta anglická slůvka, která používal zcela automaticky, mluvil, jako by včera přijel z Prahy. I když… z té Prahy před sedmnácti lety!
+Bylo obdivuhodné, že po sedmnácti letech, až na ta anglická slůvka, která používal zcela automaticky, mluvil, jako by včera přijel z Prahy. I když… z té Prahy před sedmnácti lety!
 
-> – My jsme mluvili s manželkou doma jenom česky, i náš syn umí, přestože jinak je už Kanaďan jako bejk. Jenomže je na koleji, a tak mám trabl. Jsem sám. Amerika je báječná, ale ženský tam stojej, dáma promine, za hovno. Kristepane, proč musej bejt fajn ženský akorát v tom poďobaným Československu?? A proč jich tak málo utíká??
+– My jsme mluvili s manželkou doma jenom česky, i náš syn umí, přestože jinak je už Kanaďan jako bejk. Jenomže je na koleji, a tak mám trabl. Jsem sám. Amerika je báječná, ale ženský tam stojej, dáma promine, za hovno. Kristepane, proč musej bejt fajn ženský akorát v tom poďobaným Československu?? A proč jich tak málo utíká??
 
-> – Teď budete mít příležitost, řekla, – skoro všecky pěkný holky jely letos k moři.
+– Teď budete mít příležitost, řekla, – skoro všecky pěkný holky jely letos k moři.
 
-> Čmárala cosi na rub jídelního lístku.
+Čmárala cosi na rub jídelního lístku.
 
-> – Já přiznám bez mučení, že taky proto jsem tady, abych si nějakou narazil. Snad na to mám právo: bude mi čtyřicet, dřu od vidím do nevidím, přece tam nezkysnu jako osamělej zlatokop? Jakej by pak měl život smysl?
+– Já přiznám bez mučení, že taky proto jsem tady, abych si nějakou narazil. Snad na to mám právo: bude mi čtyřicet, dřu od vidím do nevidím, přece tam nezkysnu jako osamělej zlatokop? Jakej by pak měl život smysl?
 
-> Záměrně jsem se zajímal.
+Záměrně jsem se zajímal.
 
-> – A zvykne si tam?
+– A zvykne si tam?
 
-> – Ale jo. Mezi náma, problém vůbec není v tom, zvyknout si.
+– Ale jo. Mezi náma, problém vůbec není v tom, zvyknout si.
 
-> – Nýbrž?
+– Nýbrž?
 
-> – Odvyknout! Na podnebí, práci, prachy i na ty medvědy jsem si zvykl za pár dní. Ale dodneška jsem neodvyk, že ať člověk u nás potkal koho chtěl, moh se s ním bavit o všem možným a vždycky to bylo o něčem. V tom my jsme fantastickej folk! Tam se můžete bavit s hydrologama jen o vodě, se zubařem jen o stoličce a s cizejma lidma o počasí. Ale když ta holka nebude moc na kulturu, tak se jí povede. Kultura je v Americe groggy! Musí bejt spíš na ledničky, káry, air-condition a tak, nejlíp turistka nebo kajakářka, nevíte o nějaký?
+– Odvyknout! Na podnebí, práci, prachy i na ty medvědy jsem si zvykl za pár dní. Ale dodneška jsem neodvyk, že ať člověk u nás potkal koho chtěl, moh se s ním bavit o všem možným a vždycky to bylo o něčem. V tom my jsme fantastickej folk! Tam se můžete bavit s hydrologama jen o vodě, se zubařem jen o stoličce a s cizejma lidma o počasí. Ale když ta holka nebude moc na kulturu, tak se jí povede. Kultura je v Americe groggy! Musí bejt spíš na ledničky, káry, air-condition a tak, nejlíp turistka nebo kajakářka, nevíte o nějaký?
 
-> Nevěděli jsme. Objednal novou rundu.
+Nevěděli jsme. Objednal novou rundu.
 
-> – Kdy jste odrazili z Prahy?
+– Kdy jste odrazili z Prahy?
 
-> – V sobotu.
+– V sobotu.
 
-> – Good heaven, to jste teda měli pípu!
+– Good heaven, to jste teda měli pípu!
 
-> – Jak se to vezme…
+– Jak se to vezme…
 
-> – To se dá brát jen tak, jak to leží. Ona totiž taková věc jako demokratickej komunismus není, v tom ti Rusáci mají docela pravdu. To, co dělal pan Dubček, to fakticky nemělo s komunismem nic společnýho, to byl jen obchodní název company, která změnila majitele i sortiment a jméno si nechala kvůli stej­nejm kunčaftům. Komunismus je jenom jeden a naposled se nám představil včera v Praze, jestli máte first hand account o tom, co se tam děje. Všecky ty řečičky o konvergenci západního a východního socialismu nejsou nic víc než blaf. To, co třeba děláme my v Kanadě pro sociální uspořádání lidskejch věcí, a to, co má na mysli učitel národů Leonid Iljič, prostě nemůže konvergovat. Protože taky ten folk, co má za zády on, je už tak brainwashovanej, že mu pomůže leda zvláštní konstelace hvězd, anebo – dáma promine – mimořádně roztřískaná prdel. Je to holt novej osumatřicátej rok, a až to zlikvidujou u nás, půjdou dál, protože třeba zrovna tady v tý zemi, co teď pijem ten drink, se najde dost hošíků, který je půjdou vítat chlebem a solí jako my tenkrát v květnu pětačtyřicet. Jestli můžu radit, a rád vám taky pomůžu, sbalte rance a jeďte přes louži. V Kanadě máme dost kopců, a když je našich venku taková síla, stálo by za to najít tam nějakej novej Říp a začít to pod ním znova. Těch pár kluků, co jste jim léta nadávali do zrádců, tam udělalo Čechoslovákům takovou firmu, že nám rádi dají třeba celou provincii. A ten folk si zaslouží, aby existoval, protože kam přijde, nechá za sebou work, a tam mu do něho jednou nebude nikdo kopat!
+– To se dá brát jen tak, jak to leží. Ona totiž taková věc jako demokratickej komunismus není, v tom ti Rusáci mají docela pravdu. To, co dělal pan Dubček, to fakticky nemělo s komunismem nic společnýho, to byl jen obchodní název company, která změnila majitele i sortiment a jméno si nechala kvůli stej­nejm kunčaftům. Komunismus je jenom jeden a naposled se nám představil včera v Praze, jestli máte first hand account o tom, co se tam děje. Všecky ty řečičky o konvergenci západního a východního socialismu nejsou nic víc než blaf. To, co třeba děláme my v Kanadě pro sociální uspořádání lidskejch věcí, a to, co má na mysli učitel národů Leonid Iljič, prostě nemůže konvergovat. Protože taky ten folk, co má za zády on, je už tak brainwashovanej, že mu pomůže leda zvláštní konstelace hvězd, anebo – dáma promine – mimořádně roztřískaná prdel. Je to holt novej osumatřicátej rok, a až to zlikvidujou u nás, půjdou dál, protože třeba zrovna tady v tý zemi, co teď pijem ten drink, se najde dost hošíků, který je půjdou vítat chlebem a solí jako my tenkrát v květnu pětačtyřicet. Jestli můžu radit, a rád vám taky pomůžu, sbalte rance a jeďte přes louži. V Kanadě máme dost kopců, a když je našich venku taková síla, stálo by za to najít tam nějakej novej Říp a začít to pod ním znova. Těch pár kluků, co jste jim léta nadávali do zrádců, tam udělalo Čechoslovákům takovou firmu, že nám rádi dají třeba celou provincii. A ten folk si zaslouží, aby existoval, protože kam přijde, nechá za sebou work, a tam mu do něho jednou nebude nikdo kopat!
 
-> Recepční mě povolal k telefonu. Ještě cestou ve mně dozníval ten monolog, naivní, ale zároveň i velkolepý.
+Recepční mě povolal k telefonu. Ještě cestou ve mně dozníval ten monolog, naivní, ale zároveň i velkolepý.
 
-> – Čest! pozdravil zřejmě ze zvyku, – vyřídili ti můj vzkaz?
+– Čest! pozdravil zřejmě ze zvyku, – vyřídili ti můj vzkaz?
 
-> – Ne.
+– Ne.
 
-> – To jsem si mohl myslet. Teprv teď jsem skončil a sjedu rovnou pro vás. Vyřiď, že se kaju, ale že to vynahradím. Řekni, že jí položím k nohám noční Řím.
+– To jsem si mohl myslet. Teprv teď jsem skončil a sjedu rovnou pro vás. Vyřiď, že se kaju, ale že to vynahradím. Řekni, že jí položím k nohám noční Řím.
 
-> Vracel jsem se s pocitem, že jsem jeden z mála Čechů, kteří zůstali normální. Navíc jsem vyrozuměl, že sympatie jsou vzájemné. Když jsem vyšel na ulici, byl také vodní inženýr předkloněn daleko nad stolek, držel její ruce ve svých a dlouze je líbal. Nadšeně se na mě zasmál.
+Vracel jsem se s pocitem, že jsem jeden z mála Čechů, kteří zůstali normální. Navíc jsem vyrozuměl, že sympatie jsou vzájemné. Když jsem vyšel na ulici, byl také vodní inženýr předkloněn daleko nad stolek, držel její ruce ve svých a dlouze je líbal. Nadšeně se na mě zasmál.
 
-> – Jak říkám, my máme prostě fantastický squaw! Dokázala by tohle Kanaďanka?! Slečno, vy byste byla v Albertě první dáma!
+– Jak říkám, my máme prostě fantastický squaw! Dokázala by tohle Kanaďanka?! Slečno, vy byste byla v Albertě první dáma!
 
-> Na rubu jídelního lístku se skvěla zběžně načrtnutá karikatura. Srdečně pozdravován medvědy, vracel se na ní ke svým tokům s otepí čerstvých dívek. Chtělo se mi poznamenat, že by mu ji za tisíc lir a za pět minut pořídil každý ze studentů-rychlomalířů na Piazza di Spagna, ale pak jsem si spravedlivě uvědomil, že to má opravdu Made in. Omezil jsem se tedy na vyřízení vzkazu. Jak jsem předpokládal, přijala omluvu vlídně a návrh se zřejmým uspokojením.
+Na rubu jídelního lístku se skvěla zběžně načrtnutá karikatura. Srdečně pozdravován medvědy, vracel se na ní ke svým tokům s otepí čerstvých dívek. Chtělo se mi poznamenat, že by mu ji za tisíc lir a za pět minut pořídil každý ze studentů-rychlomalířů na Piazza di Spagna, ale pak jsem si spravedlivě uvědomil, že to má opravdu Made in. Omezil jsem se tedy na vyřízení vzkazu. Jak jsem předpokládal, přijala omluvu vlídně a návrh se zřejmým uspokojením.
 
-> Vodník se okamžitě začal loučit. Nechal nám vizitky se svými adresami v Neapoli, Montrealu i Edmontonu. Když pak ona přesto odcházela napřed, aby někde našla sprchu, ještě jednou jí políbil ruku.
+Vodník se okamžitě začal loučit. Nechal nám vizitky se svými adresami v Neapoli, Montrealu i Edmontonu. Když pak ona přesto odcházela napřed, aby někde našla sprchu, ještě jednou jí políbil ruku.
 
-> – Kdybyste potkala nějakou kamarádku, přimluvte se za mě! Zůstanu tady do neděle, hotel Parco dei Principi. A kdyby byla jako vy, ať mě vzbudí třebas ve dvě ráno!
+– Kdybyste potkala nějakou kamarádku, přimluvte se za mě! Zůstanu tady do neděle, hotel Parco dei Principi. A kdyby byla jako vy, ať mě vzbudí třebas ve dvě ráno!
 
-> Doprovázel jsem ho přes ulici k širokému bouráku. Jídelní lístek s kresbou nesl jako svátost. Když jsme míjeli můj vůz, shýbl se a položil dlaň na rozpálenou tabulku s poznávací značkou.
+Doprovázel jsem ho přes ulici k širokému bouráku. Jídelní lístek s kresbou nesl jako svátost. Když jsme míjeli můj vůz, shýbl se a položil dlaň na rozpálenou tabulku s poznávací značkou.
 
-> – Pitomej plecháč, a člověk z něho málem cejtí jihočeský louky!
+– Pitomej plecháč, a člověk z něho málem cejtí jihočeský louky!
 
-> Konečně jsem se ho mohl zeptat.
+Konečně jsem se ho mohl zeptat.
 
-> – Vaše žena měla ještě starší sestru, taky lékařku…
+– Vaše žena měla ještě starší sestru, taky lékařku…
 
-> – Jo, Barunku alias Betty.
+– Jo, Barunku alias Betty.
 
-> – Co dělá?
+– Co dělá?
 
-> – Ta se normálně zcvokla. Zabouchla se na dovolený v Ha­vaně do hotelovýho doktora a zůstala tam s ním léčit revoluci!
+– Ta se normálně zcvokla. Zabouchla se na dovolený v Ha­vaně do hotelovýho doktora a zůstala tam s ním léčit revoluci!
 
 * * *
 
@@ -2241,15 +2241,15 @@ Praha
 
 <section>
 
-> Kamarádi, Petře a Pavle,
+Kamarádi, Petře a Pavle,
 
-> promiňte oslovení, kterému jsme dávno odvykli, ale slovo soudruzi se dnes hodí ještě míň.
+promiňte oslovení, kterému jsme dávno odvykli, ale slovo soudruzi se dnes hodí ještě míň.
 
-> Vám patří můj poslední dopis.
+Vám patří můj poslední dopis.
 
-> Recitoval jsem Vaše verše, protože jsem jim věřil. Protože po všem, co jsme prožili do našich sedmnácti, i pro mne komunismus znamenal svobodu a spravedlnost.
+Recitoval jsem Vaše verše, protože jsem jim věřil. Protože po všem, co jsme prožili do našich sedmnácti, i pro mne komunismus znamenal svobodu a spravedlnost.
 
-> Totéž pro ni, třebaže vyrostla v prostředí, o jakém se nám nesnilo. Na rozdíl od nás vědomě ztrácela. Pohodlí, přepych, domov. Proto si myslím, že byla z nás všech vlastně nejstatečnější. Snad nejsem objektivní. Ale pokud vím, byla i pro Vás živoucím dokladem síly našeho ideálu.
+Totéž pro ni, třebaže vyrostla v prostředí, o jakém se nám nesnilo. Na rozdíl od nás vědomě ztrácela. Pohodlí, přepych, domov. Proto si myslím, že byla z nás všech vlastně nejstatečnější. Snad nejsem objektivní. Ale pokud vím, byla i pro Vás živoucím dokladem síly našeho ideálu.
 
 </section>
 
@@ -2264,13 +2264,13 @@ Stavba staví nás!_
 
 <section>
 
-> Pod tím připsáno rukou autorů: Ofince ke vstupu do Ko­munistické strany Československa.
+Pod tím připsáno rukou autorů: Ofince ke vstupu do Ko­munistické strany Československa.
 
-> Když jsem Vám přišel říct, že vysokoškolský výbor její přihlášku vrátil, byli jste rozhořčeni. Mluvili jste o dogmaticích a idiotech. Slíbils, Petře, intervenovat. Později jsi jí vyřídil od tajemníka Hendrycha, že strana prožívá kritické období, kdy musí být bojovou organizací dělnické třídy. Ptal jsem se, proč v ní můžeme být my. Řekl jsi, že je nejspíš nutno rozlišovat předúnorové členy od těch, kteří se vždycky přidávají k vítězům; že se strana chrání před konjunkturalisty i za cenu dočasných křivd.
+Když jsem Vám přišel říct, že vysokoškolský výbor její přihlášku vrátil, byli jste rozhořčeni. Mluvili jste o dogmaticích a idiotech. Slíbils, Petře, intervenovat. Později jsi jí vyřídil od tajemníka Hendrycha, že strana prožívá kritické období, kdy musí být bojovou organizací dělnické třídy. Ptal jsem se, proč v ní můžeme být my. Řekl jsi, že je nejspíš nutno rozlišovat předúnorové členy od těch, kteří se vždycky přidávají k vítězům; že se strana chrání před konjunkturalisty i za cenu dočasných křivd.
 
-> Mělo to logiku, a Ofinka se s tím smířila, ačkoliv současně byli přijímáni lidé, kterým bych nepodal ruku, ani kdybych se topil. Přesto dál recitovala Vaše verše. I na náměstí, které teď vidím z okna hotelu, ještě letos v dubnu, v den, kdy její rodiče a sestra utíkali na Západ. Čekali celou noc na smluveném místě nedaleko odtud. Ona zůstala s námi.
+Mělo to logiku, a Ofinka se s tím smířila, ačkoliv současně byli přijímáni lidé, kterým bych nepodal ruku, ani kdybych se topil. Přesto dál recitovala Vaše verše. I na náměstí, které teď vidím z okna hotelu, ještě letos v dubnu, v den, kdy její rodiče a sestra utíkali na Západ. Čekali celou noc na smluveném místě nedaleko odtud. Ona zůstala s námi.
 
-> Vilu nabídla státu pro nebydlící, výměnou za místnost na koleji. Přestěhovala se tam s knihami, s kufrem šatů a s je­diným přáním: dobře dostudovat, aby pak mohla léčit v osvobozeném pohraničí –
+Vilu nabídla státu pro nebydlící, výměnou za místnost na koleji. Přestěhovala se tam s knihami, s kufrem šatů a s je­diným přáním: dobře dostudovat, aby pak mohla léčit v osvobozeném pohraničí –
 
 </section>
 
@@ -2285,27 +2285,27 @@ A lidé dobré ráno!_
 
 <section>
 
-> To všechno jste věděli. Co už nevíte, je: 15. září jsme se vrátili z Nové huti. Ačkoliv mohla pracovat jako zdravotnice na štábu stavby, byla se mnou v zednické brigádě. Prosil jsem ji, ať se aspoň nehlásí na noční směny. Řekla, že se chce osvobodit od své třídy. Že si chce vybojovat důvěru a najít samu sebe. Den před odjezdem dostala údernický odznak.
+To všechno jste věděli. Co už nevíte, je: 15. září jsme se vrátili z Nové huti. Ačkoliv mohla pracovat jako zdravotnice na štábu stavby, byla se mnou v zednické brigádě. Prosil jsem ji, ať se aspoň nehlásí na noční směny. Řekla, že se chce osvobodit od své třídy. Že si chce vybojovat důvěru a najít samu sebe. Den před odjezdem dostala údernický odznak.
 
-> Den po příjezdu do Prahy jí na fakultě oznámili, že nebude zapsána do pátého semestru. Poukazovala na svůj prospěch, na FRODREV, ukázala jim ten odznak. V akčním výboru seděli její spolužáci. Řekli jí, že není sama, koho tu reakce nechala hlídat majetek, že buržoazie je mazaná, ale strana chytřejší, a proto nepřipustí pátou kolonu.
+Den po příjezdu do Prahy jí na fakultě oznámili, že nebude zapsána do pátého semestru. Poukazovala na svůj prospěch, na FRODREV, ukázala jim ten odznak. V akčním výboru seděli její spolužáci. Řekli jí, že není sama, koho tu reakce nechala hlídat majetek, že buržoazie je mazaná, ale strana chytřejší, a proto nepřipustí pátou kolonu.
 
-> Zakázala mi jít za Vámi, aby Vás nepřivedla do maléru. Poslechl jsem, protože jsem se spíš bál, že byste jí třeba řekli totéž. Musela se ještě tentýž den vystěhovat z koleje.
+Zakázala mi jít za Vámi, aby Vás nepřivedla do maléru. Poslechl jsem, protože jsem se spíš bál, že byste jí třeba řekli totéž. Musela se ještě tentýž den vystěhovat z koleje.
 
-> V jejich vile už bydlí jistý soudruh z vnitra. Vzal jsem ji k nám. Spala v kuchyni. Ale pořád neztrácela kuráž. Šla do Tesly, aby ji zaměstnali na běžícím pásu.
+V jejich vile už bydlí jistý soudruh z vnitra. Vzal jsem ji k nám. Spala v kuchyni. Ale pořád neztrácela kuráž. Šla do Tesly, aby ji zaměstnali na běžícím pásu.
 
-> Ona pořád věřila, že nás přesvědčí!
+Ona pořád věřila, že nás přesvědčí!
 
-> Zřejmě si vyžádali posudek. Po týdnu jí sdělili, že nemohou rozmělnit dělnickou třídu buržoazními elementy, protože vyrábějí spojovací techniku. Zeptala se, co má proboha dělat. Ten kádrovák se zeptal jí, proč vlastně neodešla se svými rodiči.
+Zřejmě si vyžádali posudek. Po týdnu jí sdělili, že nemohou rozmělnit dělnickou třídu buržoazními elementy, protože vyrábějí spojovací techniku. Zeptala se, co má proboha dělat. Ten kádrovák se zeptal jí, proč vlastně neodešla se svými rodiči.
 
-> Když nám to večer vyprávěla, poprvé se rozplakala. Oka­mžitě jsem prohlásil, že si ji vezmu.
+Když nám to večer vyprávěla, poprvé se rozplakala. Oka­mžitě jsem prohlásil, že si ji vezmu.
 
-> Myslel jsem, že matku raní mrtvice. Naříkala, že je mi jednadvacet, že otec jako živnostník neví, co bude zítra, že musí oba dřít, abych mohl studovat herectví, a teď jim takhle zkomplikuju život. Řekla, že ten člověk měl pravdu, že se utíká pořád, tak proč nejde Olinka za rodiči, vždyť se tam bude mít jako prase v žitě.
+Myslel jsem, že matku raní mrtvice. Naříkala, že je mi jednadvacet, že otec jako živnostník neví, co bude zítra, že musí oba dřít, abych mohl studovat herectví, a teď jim takhle zkomplikuju život. Řekla, že ten člověk měl pravdu, že se utíká pořád, tak proč nejde Olinka za rodiči, vždyť se tam bude mít jako prase v žitě.
 
-> Ano, řekla to přesně tak. Pak brečela vedle ní, hladila ji po vlasech a prosila, aby zůstala, jak dlouho bude chtít, to že z nás necity dělá ta doba…
+Ano, řekla to přesně tak. Pak brečela vedle ní, hladila ji po vlasech a prosila, aby zůstala, jak dlouho bude chtít, to že z nás necity dělá ta doba…
 
-> Ta doba, kamarádi, které jsme společně dali své srdce, své síly i ten kousek talentu, co snad máme.
+Ta doba, kamarádi, které jsme společně dali své srdce, své síly i ten kousek talentu, co snad máme.
 
-> A tak teď sedím v hotelu na domažlickém náměstí a píšu Vám dvěma poslední dopis z Čech. Až ho dostanete, budu už „za kopečky“. Vím, že mě i Vy prohlásíte za zrádce. Ale neodcházím bojovat proti Vám. Jdu prostě s ní. Je to má povinnost.
+A tak teď sedím v hotelu na domažlickém náměstí a píšu Vám dvěma poslední dopis z Čech. Až ho dostanete, budu už „za kopečky“. Vím, že mě i Vy prohlásíte za zrádce. Ale neodcházím bojovat proti Vám. Jdu prostě s ní. Je to má povinnost.
 
 </section>
 
@@ -2318,21 +2318,21 @@ A vlast si nesu v sobě_
 
 <section>
 
-> To mě konečně napadl můj vlastní verš.
+To mě konečně napadl můj vlastní verš.
 
-> Dopustili jste, aby stranická legitimace přehlušila rozum i svědomí. Já nemůžu.
+Dopustili jste, aby stranická legitimace přehlušila rozum i svědomí. Já nemůžu.
 
-> Je mi strašně smutno a tiše volám spolu s Komenského Poutníkem:
+Je mi strašně smutno a tiše volám spolu s Komenského Poutníkem:
 
-> BOŽE, JESTLIŽE JAKÝ BŮH JSI, SMILUJ SE NADE MNOU BÍDNÝM!
+BOŽE, JESTLIŽE JAKÝ BŮH JSI, SMILUJ SE NADE MNOU BÍDNÝM!
 
-> Ale mně nikdo neodpovídá.
+Ale mně nikdo neodpovídá.
 
-> Sbohem. Budoucnost rozsoudí, kdo z nás měl pravdu.
+Sbohem. Budoucnost rozsoudí, kdo z nás měl pravdu.
 
-> Váš Slávek
+Váš Slávek
 
-> Domažlice 2. X. 1949
+Domažlice 2. X. 1949
 
 </section>
 
@@ -2697,23 +2697,23 @@ C…!
 Čtvrtek 22. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
-> Nestačil jsem pořádně vynadat recepčnímu, když Škoda MB přistála u chodníku. Bylo už pozdě měnit hotel, nechal jsem to na zítřek. Vrátili jsme se ke stolu. Krajan v rozčilení zapomněl zaplatit, takže jsme mohli rovnou zvýšit útratu. Blížila se šestá. Milosrdný bůh už sice odvolal svého střelce s plamenometem, ale whisky s ledem byla stále to nejlepší, co se dalo pít.
+Nestačil jsem pořádně vynadat recepčnímu, když Škoda MB přistála u chodníku. Bylo už pozdě měnit hotel, nechal jsem to na zítřek. Vrátili jsme se ke stolu. Krajan v rozčilení zapomněl zaplatit, takže jsme mohli rovnou zvýšit útratu. Blížila se šestá. Milosrdný bůh už sice odvolal svého střelce s plamenometem, ale whisky s ledem byla stále to nejlepší, co se dalo pít.
 
-> Zprávy, které přivezl, byly kusé. Mezi první obsazené objekty patří budovy Akademie věd a Svazu spisovatelů. Nic bližšího. Ambasáda zachytila nótu našeho ministerstva zahraničí vládám pěti zemí, která opakuje, že okupace je v rozporu s Chartou OSN i se zásadami Varšavské smlouvy, a žádá propuštění všech internovaných. V hotelu Praha se včera sešla pod ochranou vojsk část ÚV strany; v čele s Kolderem, Indrou a Biľakem vzala okupaci na vědomí jako realitu. Sestavili prý i jakousi dělnicko-rolnickou vládu, ale prezident s nimi vyběhl.
+Zprávy, které přivezl, byly kusé. Mezi první obsazené objekty patří budovy Akademie věd a Svazu spisovatelů. Nic bližšího. Ambasáda zachytila nótu našeho ministerstva zahraničí vládám pěti zemí, která opakuje, že okupace je v rozporu s Chartou OSN i se zásadami Varšavské smlouvy, a žádá propuštění všech internovaných. V hotelu Praha se včera sešla pod ochranou vojsk část ÚV strany; v čele s Kolderem, Indrou a Biľakem vzala okupaci na vědomí jako realitu. Sestavili prý i jakousi dělnicko-rolnickou vládu, ale prezident s nimi vyběhl.
 
-> – Mrchy! řekl jsem, – konečně přiznali barvu.
+– Mrchy! řekl jsem, – konečně přiznali barvu.
 
-> – Myslím, že ji nemuseli měnit, namítl. – Měli k obrodnému procesu zásadní výhrady už od začátku.
+– Myslím, že ji nemuseli měnit, namítl. – Měli k obrodnému procesu zásadní výhrady už od začátku.
 
-> – Nikoli! Pojali obavu o náš vývoj, teprve když zjistili, že nejde o řadový palácový převrat, ale o gruntovní výměnu kádrů, která se nezastaví ani před nimi. Pamatuju, jak se Drahomír Kolder dojatě zapřísahal, že uvolní své místo schop­nějším politikům, jestliže neobstojí. Teď zřejmě raději usoudil, že neobstála strana. Ostatně – co je normální a samozřejmé v mírové diskusi, dostává novou podobu v okamžiku, kdy teče krev!
+– Nikoli! Pojali obavu o náš vývoj, teprve když zjistili, že nejde o řadový palácový převrat, ale o gruntovní výměnu kádrů, která se nezastaví ani před nimi. Pamatuju, jak se Drahomír Kolder dojatě zapřísahal, že uvolní své místo schop­nějším politikům, jestliže neobstojí. Teď zřejmě raději usoudil, že neobstála strana. Ostatně – co je normální a samozřejmé v mírové diskusi, dostává novou podobu v okamžiku, kdy teče krev!
 
-> Viděl jsem, že se nechce hádat. Jeho poslední informace daleko zastínila všechny předchozí. Nemožné se stalo skutkem: Od rána zasedal v kterési z pražských továren XIV. mimořádný sjezd strany, kterého se účastní přes 80 procent řádně zvolených delegátů. Komuniké mělo být vydáno v noci.
+Viděl jsem, že se nechce hádat. Jeho poslední informace daleko zastínila všechny předchozí. Nemožné se stalo skutkem: Od rána zasedal v kterési z pražských továren XIV. mimořádný sjezd strany, kterého se účastní přes 80 procent řádně zvolených delegátů. Komuniké mělo být vydáno v noci.
 
-> Nedalo se než čekat. Mohli jsme se vrátit k našemu včerejšímu rozhovoru. Od začátku usiloval o přátelský tón.
+Nedalo se než čekat. Mohli jsme se vrátit k našemu včerejšímu rozhovoru. Od začátku usiloval o přátelský tón.
 
-> – Nechtěl jsem samozřejmě říct, že přišli z tvé viny. Ale nemůžeme být přece tak naivní, abychom věřili, že je to nedopatření, které se zítra vysvětlí. Důsledky toho kroku jsou nedozírné a budou trvat léta. Nejen u nás, kde obnoví mnichovské trauma a probudí reakční nacionalismus, který začne identifikovat dočasnou mocenskou politiku Sovětského svazu se socialismem vůbec. O nic míň není postiženo celé revoluční hnutí. Komunistické strany Západu stojí a padají s tezí, že centrum naprosto respektuje národní specifiku. Co mají říkat teď? Světová pravice je na koni. I Nixon může už dnes poděkovat Brežněvovi za své zvolení.
+– Nechtěl jsem samozřejmě říct, že přišli z tvé viny. Ale nemůžeme být přece tak naivní, abychom věřili, že je to nedopatření, které se zítra vysvětlí. Důsledky toho kroku jsou nedozírné a budou trvat léta. Nejen u nás, kde obnoví mnichovské trauma a probudí reakční nacionalismus, který začne identifikovat dočasnou mocenskou politiku Sovětského svazu se socialismem vůbec. O nic míň není postiženo celé revoluční hnutí. Komunistické strany Západu stojí a padají s tezí, že centrum naprosto respektuje národní specifiku. Co mají říkat teď? Světová pravice je na koni. I Nixon může už dnes poděkovat Brežněvovi za své zvolení.
 
 _Já_: To mají být argumenty proti mně?
 
@@ -2775,9 +2775,9 @@ _Já_: Ty jsi snad přímo trockista??
 
 _On_: Ne… Jenom unavenej čtyřicátník trpící komplexem vlastní viny. Ačkoli jsem _věděl_, ačkoliv jsem byl skutečně schopen obětovat život ideálům našeho mládí, dopadl jsem vlastně hůř než ty. Jsem obětí stejné sentimentality, kterou vytýkám tobě. Jenomže _já_ jsem byl v aparátu strany a tedy taky _já_ jsem připustil její liberalizaci, kterou vidím už v tom, že se do jejího čela dostal naprosto neschopný amatér Novotný. Nechtěli jsme být tvrdí, ale neuměli jsme být jiní. Proto jste se mohli stát politickou silou. Proto spolu zapíjíme poslední hodiny strany. Vašimi ústy nabídla národu nesplnitelné. Prohrála a zaplatí za to ztrátou důvěry. Opouští scénu, na které nezůstala žádná jiná alternativa. Nadchází katastrofa, za kterou jsme zodpovědní oba. Můžem se na ni odtud dívat dalekohledem televizoru jako na sluneční erupce a zpívat si s Dantem: Lasciate ogni speranza voi ch’entrate!
 
-> Při té hrozivé větě se nelogicky rozzářil.
+Při té hrozivé větě se nelogicky rozzářil.
 
-> Přicházela.
+Přicházela.
 
 * * *
 
@@ -3326,13 +3326,13 @@ _výboru základní organizace KSČ Svazu čs. spisovatelů_
 
 _Čj.: N/Ka-43/1-1968_
 
-> _Vážení soudruzi… předem se i touto cestou omlouvám jménem svým i jménem pracovníků pasové kontroly v Rozvadově, zejména tamějšího náčelníka soudruha B., spisovateli soudruhu PK za z naší strany politováníhodný zákrok vůči jeho osobě, provedený v srpnu loňského roku při jeho cestě do Německé spolkové republiky.“_
+_Vážení soudruzi… předem se i touto cestou omlouvám jménem svým i jménem pracovníků pasové kontroly v Rozvadově, zejména tamějšího náčelníka soudruha B., spisovateli soudruhu PK za z naší strany politováníhodný zákrok vůči jeho osobě, provedený v srpnu loňského roku při jeho cestě do Německé spolkové republiky.“_
 
-> _„… V předmětné věci bylo též vysloveno, ale jen mimo náš rezort, neodůvodněné rčení, že s. PK převážel do zahraničí závadové tiskoviny a korespondenci. K oběma věcem prohlašuji, že tato tvrzení neodpovídají skutečnosti… Jednalo se o normální odběr denního tisku, který si při pobytu v republice, jak sám na místě vysvětloval, nestačil doma přečíst, a proto si jej vzal na cestu. Toto vysvětlení mělo být dostatečné i orgánům pasové kontroly a nebyl žádný důvod z těchto skutečností vyvozovat nějaké domněnky. Pokud se týče osobní korespondence, je toto jeho osobní záležitostí a nám nepříslušelo nějak do těchto věcí zasahovat ani vyslovovat určitá podezření.“_
+_„… V předmětné věci bylo též vysloveno, ale jen mimo náš rezort, neodůvodněné rčení, že s. PK převážel do zahraničí závadové tiskoviny a korespondenci. K oběma věcem prohlašuji, že tato tvrzení neodpovídají skutečnosti… Jednalo se o normální odběr denního tisku, který si při pobytu v republice, jak sám na místě vysvětloval, nestačil doma přečíst, a proto si jej vzal na cestu. Toto vysvětlení mělo být dostatečné i orgánům pasové kontroly a nebyl žádný důvod z těchto skutečností vyvozovat nějaké domněnky. Pokud se týče osobní korespondence, je toto jeho osobní záležitostí a nám nepříslušelo nějak do těchto věcí zasahovat ani vyslovovat určitá podezření.“_
 
-> _„… V rámci prováděné kontroly na úřadovně byl sepsán též zápis, že s. PK nepřihlášením určitých částek naší a cizí měny dopustil se valutového přestupku. Soudruh PK na místě podal k těmto skutečnostem vyjádření, dle mého názoru přesvědčivé… avšak teprve při dodatečném řešení celé věci zde v Praze bylo shledáno, že ani v tomto směru nařčení nemá opodstatnění, a proto i v tomto směru uvádím věc na správnou míru.“_
+_„… V rámci prováděné kontroly na úřadovně byl sepsán též zápis, že s. PK nepřihlášením určitých částek naší a cizí měny dopustil se valutového přestupku. Soudruh PK na místě podal k těmto skutečnostem vyjádření, dle mého názoru přesvědčivé… avšak teprve při dodatečném řešení celé věci zde v Praze bylo shledáno, že ani v tomto směru nařčení nemá opodstatnění, a proto i v tomto směru uvádím věc na správnou míru.“_
 
-> _„… Závěrem vás, vážení soudruzi, ujišťuji, že jsem již provedl opatření, aby se podobné případy nemohly opakovat. Se soudružským pozdravem pplk. J. B., zástupce náčelníka.“_
+_„… Závěrem vás, vážení soudruzi, ujišťuji, že jsem již provedl opatření, aby se podobné případy nemohly opakovat. Se soudružským pozdravem pplk. J. B., zástupce náčelníka.“_
 
 </section>
 
@@ -3618,133 +3618,133 @@ Není s námi Gottwald – buďme gottwaldovci!_
 Čtvrtek 22. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
-> Italka vstala z gauče a zapnula magnetofon. Ozvala se píseň Lary z Doktora Živaga, teplá a hustá. Začala se rozepínat. Pod sametovým kabátkem měla jen svou kůži. Musel jsem přiznat, že je nádherná. Pohlédla na mě se zvláštním úsměvem, na němž se spíš než oči podílely rty, a došla ke mně. Zůstal jsem sedět. Poklekla, vzala mou ruku do svých a položila ji na zip svých úzkých kalhot. Zavrtěl jsem hlavou, uvolnil ruku a vzal do ní opět cigaretu. Úsměv na tváři nezhasl, ale proměnil se v masku. Zblízka jsem uslyšel pohrdavé zasyčení. Otočila hlavu přes ni k němu. Profil prozradil, že jí nemůže být víc než osmnáct. Překvapil mě: Zdvořile se uklonil, jako by se omlouval, a otevřel jí zdrhovadlo po celé délce nohavice. Italka přitom vstávala, až byla docela nahá. Ozval se potlesk. Zářivě se děkovala. Po mně hodila pohled jako nůž.
+Italka vstala z gauče a zapnula magnetofon. Ozvala se píseň Lary z Doktora Živaga, teplá a hustá. Začala se rozepínat. Pod sametovým kabátkem měla jen svou kůži. Musel jsem přiznat, že je nádherná. Pohlédla na mě se zvláštním úsměvem, na němž se spíš než oči podílely rty, a došla ke mně. Zůstal jsem sedět. Poklekla, vzala mou ruku do svých a položila ji na zip svých úzkých kalhot. Zavrtěl jsem hlavou, uvolnil ruku a vzal do ní opět cigaretu. Úsměv na tváři nezhasl, ale proměnil se v masku. Zblízka jsem uslyšel pohrdavé zasyčení. Otočila hlavu přes ni k němu. Profil prozradil, že jí nemůže být víc než osmnáct. Překvapil mě: Zdvořile se uklonil, jako by se omlouval, a otevřel jí zdrhovadlo po celé délce nohavice. Italka přitom vstávala, až byla docela nahá. Ozval se potlesk. Zářivě se děkovala. Po mně hodila pohled jako nůž.
 
-> Rozsvítilo se. Vrchní doplňoval objednávky. Poručil jsem si opět seven up, přestože tu byla stejně drahá jako whisky, kterou si spolu před chvílí mí dva spolustolovníci připili na tykání. Byl okouzlující. Až příliš. Dosud nikdy jsem ho tak nezažil. Pil jsem limonádu, abych jí naznačil, že chci domů. Účinek byl opačný. Začala mě špičkovat.
+Rozsvítilo se. Vrchní doplňoval objednávky. Poručil jsem si opět seven up, přestože tu byla stejně drahá jako whisky, kterou si spolu před chvílí mí dva spolustolovníci připili na tykání. Byl okouzlující. Až příliš. Dosud nikdy jsem ho tak nezažil. Pil jsem limonádu, abych jí naznačil, že chci domů. Účinek byl opačný. Začala mě špičkovat.
 
-> – Slušně vychovaný člověk má dodržovat pravidla hry všude, řekla.
+– Slušně vychovaný člověk má dodržovat pravidla hry všude, řekla.
 
-> – Víš dávno, že je mi striptýz z duše protivný.
+– Víš dávno, že je mi striptýz z duše protivný.
 
-> – Ale vy jste snad byli _oba_ svazáci, ne?
+– Ale vy jste snad byli _oba_ svazáci, ne?
 
-> – Patrně jsem poznamenán hůř než on.
+– Patrně jsem poznamenán hůř než on.
 
-> – Netvrdím, že bych šílel, řekl, – ale taky mě to neuráží. Koneckonců je to návrat k folkloru starého Říma. Co ti na tom tak vadí?
+– Netvrdím, že bych šílel, řekl, – ale taky mě to neuráží. Koneckonců je to návrat k folkloru starého Říma. Co ti na tom tak vadí?
 
-> – Nevím. Asi že se tak stylizují.
+– Nevím. Asi že se tak stylizují.
 
-> – Jak zvláštní, řekla, – u pána od divadla, jenž slzí, kdykoli Augusta žerou tygři, ačkoli ví, že je to pan Brodský.
+– Jak zvláštní, řekla, – u pána od divadla, jenž slzí, kdykoli Augusta žerou tygři, ačkoli ví, že je to pan Brodský.
 
-> – Tak je to asi v něčem jiném, pravil jsem už lehce podrážděně. – Třeba v jejich neosobnosti. Člověk v masce se na scéně proměňuje. Nahá ženská se před publikem popírá. Je bez tajemství. Je groteskní jako klavírní křídlo, které má místo strun reproduktor, je absurdní jako naše armáda, která už dvakrát v tomhle století stála tuny energie i prachů, ale pak se domnívala prokázat největší službu vlasti tím, že nebojovala.
+– Tak je to asi v něčem jiném, pravil jsem už lehce podrážděně. – Třeba v jejich neosobnosti. Člověk v masce se na scéně proměňuje. Nahá ženská se před publikem popírá. Je bez tajemství. Je groteskní jako klavírní křídlo, které má místo strun reproduktor, je absurdní jako naše armáda, která už dvakrát v tomhle století stála tuny energie i prachů, ale pak se domnívala prokázat největší službu vlasti tím, že nebojovala.
 
-> – Oceňuješ, řekla mu, jako by na mně demonstrovala cvi­čenou opici, – jak se i od striptýzu dostane přes tři věty k politice? Byl vždycky takový mravouk?
+– Oceňuješ, řekla mu, jako by na mně demonstrovala cvi­čenou opici, – jak se i od striptýzu dostane přes tři věty k politice? Byl vždycky takový mravouk?
 
-> Záměrně provokovala. Chtěl jsem jí připomenout jeden večírek, kdy donutila malou společnost hrát na fanty „až do těch hrdel“, aby pak dala políček důvěřivému příteli, který to vzal vážně. Chtěl jsem poznamenat, že jsem celý první rok nesměl v jisté situaci rozsvítit ani stupnici rádia. Ale řekl jsem pouze.
+Záměrně provokovala. Chtěl jsem jí připomenout jeden večírek, kdy donutila malou společnost hrát na fanty „až do těch hrdel“, aby pak dala políček důvěřivému příteli, který to vzal vážně. Chtěl jsem poznamenat, že jsem celý první rok nesměl v jisté situaci rozsvítit ani stupnici rádia. Ale řekl jsem pouze.
 
-> – Hodlám prostě zůstat v téhle věci amatér. Nikdy jsem na tom nebyl tak zle, abych musel ženským za svlékání platit.
+– Hodlám prostě zůstat v téhle věci amatér. Nikdy jsem na tom nebyl tak zle, abych musel ženským za svlékání platit.
 
-> – Patrně jsi platil mnohem víc, jenže to mělo jinou formu.
+– Patrně jsi platil mnohem víc, jenže to mělo jinou formu.
 
-> Byla to nahrávka na smeč, která mohla zasáhnout i ji. Zřejmě to dokonce chtěla, aby měla důvod zahájit další kolo. Od Perugie byla však jiná situace a v ní jiný i já. Nedalo mi práci se ovládnout.
+Byla to nahrávka na smeč, která mohla zasáhnout i ji. Zřejmě to dokonce chtěla, aby měla důvod zahájit další kolo. Od Perugie byla však jiná situace a v ní jiný i já. Nedalo mi práci se ovládnout.
 
-> – Bolí mě hlava, pravil jsem zdůrazněně přátelsky, – asi z toho vedra. Bylo by vám proti mysli, kdybych šel napřed?
+– Bolí mě hlava, pravil jsem zdůrazněně přátelsky, – asi z toho vedra. Bylo by vám proti mysli, kdybych šel napřed?
 
-> Učinila, co jsem předpokládal: Odpověděla, jako by patřila k němu.
+Učinila, co jsem předpokládal: Odpověděla, jako by patřila k němu.
 
-> – Ale naprosto ne. Myslím, že se svedeme bavit i sami. Řekneš nám potom, jestli jsme už sovětská republika. Tvůj přítel v ní bude prezident a ty jeho disident, viď?
+– Ale naprosto ne. Myslím, že se svedeme bavit i sami. Řekneš nám potom, jestli jsme už sovětská republika. Tvůj přítel v ní bude prezident a ty jeho disident, viď?
 
-> On k tomu nepoznamenal nic. Když vstával, aby mi podal ruku, všiml jsem si, že začíná být opilý. Stiskl mi ji tak obřadně, jako bychom se potkali poprvé a naposled.
+On k tomu nepoznamenal nic. Když vstával, aby mi podal ruku, všiml jsem si, že začíná být opilý. Stiskl mi ji tak obřadně, jako bychom se potkali poprvé a naposled.
 
-> Šel jsem pěšky kolem monstrózního pomníku Viktora Emanuela, pod balkonem, odkud fascinoval své publikum největší herec italského fašismu Duce Benito. Via del Corso byla nezvykle tichá jako všechna města srpnové Evropy… s výjimkou našich. Moje podráždění pomalu ustupovalo. Také proto, že bylo konečně chladněji a přestával ze mě lít pot. Můj mozek, který byl na náměstí v Perugii zasažen třemi slovy kamelota jako třemi kameny, začal náhle znovu pracovat, chladně a racionálně.
+Šel jsem pěšky kolem monstrózního pomníku Viktora Emanuela, pod balkonem, odkud fascinoval své publikum největší herec italského fašismu Duce Benito. Via del Corso byla nezvykle tichá jako všechna města srpnové Evropy… s výjimkou našich. Moje podráždění pomalu ustupovalo. Také proto, že bylo konečně chladněji a přestával ze mě lít pot. Můj mozek, který byl na náměstí v Perugii zasažen třemi slovy kamelota jako třemi kameny, začal náhle znovu pracovat, chladně a racionálně.
 
-> Jako vždycky, když se žene povodeň, ustoupily tam všechny složitosti našeho vztahu pudu sebezáchovy. Chytili jsme se jeden druhého, protože to bylo jediné, co bylo v minutě zmaru po ruce. Vlna se přelila, a my jsme tu, ohromení, poranění, ale živí. Zákon smrtelného nebezpečí ustoupil opět zákonům života. Příměří skončilo, a náš spor tu byl dál v celé své neřešitelnosti. Zatímco mne zavaluje tíha potopy, která padla na mé město, ona si bere plavky a očekává, že se půjdeme koupat…
+Jako vždycky, když se žene povodeň, ustoupily tam všechny složitosti našeho vztahu pudu sebezáchovy. Chytili jsme se jeden druhého, protože to bylo jediné, co bylo v minutě zmaru po ruce. Vlna se přelila, a my jsme tu, ohromení, poranění, ale živí. Zákon smrtelného nebezpečí ustoupil opět zákonům života. Příměří skončilo, a náš spor tu byl dál v celé své neřešitelnosti. Zatímco mne zavaluje tíha potopy, která padla na mé město, ona si bere plavky a očekává, že se půjdeme koupat…
 
-> V tiché ulici zabouřil křik. Od Piazza di Spania táhl průvod mladých Italů s potrhanými transparenty. ABBASSO BREZHNEV – VIVA DUBCEK! Doprovázela je policie na koních. Vzpomněl jsem italské písně, kterou kdysi zavál vítr do Čech právě včas, aby pozdravila tanky osvoboditelů. ABBASSO RE – VIVA STALIN!
+V tiché ulici zabouřil křik. Od Piazza di Spania táhl průvod mladých Italů s potrhanými transparenty. ABBASSO BREZHNEV – VIVA DUBCEK! Doprovázela je policie na koních. Vzpomněl jsem italské písně, kterou kdysi zavál vítr do Čech právě včas, aby pozdravila tanky osvoboditelů. ABBASSO RE – VIVA STALIN!
 
-> Zaslechl jsem český i slovenský hovor a přidal se k malému ostrůvku blonďatých vlasů.
+Zaslechl jsem český i slovenský hovor a přidal se k malému ostrůvku blonďatých vlasů.
 
-> – Kam jdete?
+– Kam jdete?
 
-> – Táhnem na zdejší Rusáky. Pojďte s náma!
+– Táhnem na zdejší Rusáky. Pojďte s náma!
 
-> Byl jsem příliš unaven a především i teď neschopen roztloukat okna ambasád. Ostřeji než kdy mi přišlo, že to není český obyčej. Šli mým směrem. Sdělil jsem jim svou pochybnost, třebaže jsem chápal, že motorem jejich jednání je solidarita těch druhých a vlastní zoufalství.
+Byl jsem příliš unaven a především i teď neschopen roztloukat okna ambasád. Ostřeji než kdy mi přišlo, že to není český obyčej. Šli mým směrem. Sdělil jsem jim svou pochybnost, třebaže jsem chápal, že motorem jejich jednání je solidarita těch druhých a vlastní zoufalství.
 
-> – Zdá se mi, že kameny jsou argumentem světa, se kterým vedeme boj po celé naše dějiny.
+– Zdá se mi, že kameny jsou argumentem světa, se kterým vedeme boj po celé naše dějiny.
 
-> Mládenec s chytrýma očima, který objímal kolem ramen uplakanou Godivu, na mě vyjel.
+Mládenec s chytrýma očima, který objímal kolem ramen uplakanou Godivu, na mě vyjel.
 
-> – Akorát že jsme ho vyhrávali jen tehdy, když jsme je házeli zpátky!
+– Akorát že jsme ho vyhrávali jen tehdy, když jsme je házeli zpátky!
 
-> Širokým gestem ukázal na demonstranty, kteří hněvivě skandovali, jako by šlo o jejich věc.
+Širokým gestem ukázal na demonstranty, kteří hněvivě skandovali, jako by šlo o jejich věc.
 
-> – Podívejme se na ně! Kdyby vtrhly tanky do týhle ulice, lítaly by ze všech oken láhve s benzinem!
+– Podívejme se na ně! Kdyby vtrhly tanky do týhle ulice, lítaly by ze všech oken láhve s benzinem!
 
-> – A přemýšlel jste, proč v Praze nelítají?
+– A přemýšlel jste, proč v Praze nelítají?
 
-> – Protože jsme srabi! Protože nejsme hodni svý existence!
+– Protože jsme srabi! Protože nejsme hodni svý existence!
 
-> Takový spor jsem už jednou v životě vedl. Pouze jsem vyměnil pozici. Stáří? Mé stanovisko hájil tenkrát chlapec Robert, který byl stejně mladý jako on. Bylo to v něčem jiném.
+Takový spor jsem už jednou v životě vedl. Pouze jsem vyměnil pozici. Stáří? Mé stanovisko hájil tenkrát chlapec Robert, který byl stejně mladý jako on. Bylo to v něčem jiném.
 
-> – Poslyšte, řekl jsem, – na co jsme právě narazili, se jmenuje česká otázka. Boj, anebo kompromis? Riskovat, že ztratíme všecko, anebo získat čas a prostor, ze kterého se obloukem znovu vrátíme na svou osudovou cestu?
+– Poslyšte, řekl jsem, – na co jsme právě narazili, se jmenuje česká otázka. Boj, anebo kompromis? Riskovat, že ztratíme všecko, anebo získat čas a prostor, ze kterého se obloukem znovu vrátíme na svou osudovou cestu?
 
-> – Jestli jste komunista, řekl, – a asi jste, protože mluvíte jako můj stařík, tak vám sděluju, že oblouk, co vede přes kriminály a popraviště, mě už nezajímá. Já se nechci znova učit, že telefon vynalezl Popov a Masaryk že střílel do dělníků. A už vůbec nemám chuť poznat sibiřský medvědy!
+– Jestli jste komunista, řekl, – a asi jste, protože mluvíte jako můj stařík, tak vám sděluju, že oblouk, co vede přes kriminály a popraviště, mě už nezajímá. Já se nechci znova učit, že telefon vynalezl Popov a Masaryk že střílel do dělníků. A už vůbec nemám chuť poznat sibiřský medvědy!
 
-> Připomněl jsem si muže, který potkal své medvědy v Ka­nadě. Drobný rozdíl byl v tom, že je potkat chtěl. Mladík s dívkou si mě přestali všímat.
+Připomněl jsem si muže, který potkal své medvědy v Ka­nadě. Drobný rozdíl byl v tom, že je potkat chtěl. Mladík s dívkou si mě přestali všímat.
 
-> – Viete, řekl třetí slovensky, – v Prahe sa už zatvára! Bude to opäť len také ako v päťdesiatych rokoch.
+– Viete, řekl třetí slovensky, – v Prahe sa už zatvára! Bude to opäť len také ako v päťdesiatych rokoch.
 
-> – Nesmysl! To by tentokrát museli zavřít milion lidí!
+– Nesmysl! To by tentokrát museli zavřít milion lidí!
 
-> – A čo im to urobí? Azda nezatvorili viacerých? Amerikáni alebo Rusáci – všetci sú rovnakí žandári!
+– A čo im to urobí? Azda nezatvorili viacerých? Amerikáni alebo Rusáci – všetci sú rovnakí žandári!
 
-> – Tak co si chcete vybrat?
+– Tak co si chcete vybrat?
 
-> – Švajčiarsko. Hovorili, že berú všetkých Čechoslovákov. Je to tiež Európa, ako u nás, len že to už nie je Byzanc!
+– Švajčiarsko. Hovorili, že berú všetkých Čechoslovákov. Je to tiež Európa, ako u nás, len že to už nie je Byzanc!
 
-> Na Piazza Popolo jsem se odpojil.
+Na Piazza Popolo jsem se odpojil.
 
-> – Kde idete vy? zeptal se mě.
+– Kde idete vy? zeptal se mě.
 
-> Odpověděl jsem bez přemýšlení.
+Odpověděl jsem bez přemýšlení.
 
-> – Do Prahy.
+– Do Prahy.
 
-> – Pozdravujte tam kámoše kolaboranty! křikl chlapec s dívkou. Slovák mi rozpačitě zamával.
+– Pozdravujte tam kámoše kolaboranty! křikl chlapec s dívkou. Slovák mi rozpačitě zamával.
 
-> Šel jsem tichou ulicí, která se svažovala k hotelu, a byl jsem rozhodnut. Už se mi nechtělo pít campari, viset u rádia, žvanit o minulosti a nudit se na striptýzu. Od Perugie uplynulo třicet hodin. Moje zpoždění nebylo nedostižné. Rozhodl jsem se, že počkám, až se vrátí, a položím jí úplně poslední otázku.
+Šel jsem tichou ulicí, která se svažovala k hotelu, a byl jsem rozhodnut. Už se mi nechtělo pít campari, viset u rádia, žvanit o minulosti a nudit se na striptýzu. Od Perugie uplynulo třicet hodin. Moje zpoždění nebylo nedostižné. Rozhodl jsem se, že počkám, až se vrátí, a položím jí úplně poslední otázku.
 
-> Před hotelem se rozjíždělo embéčko s brněnskou značkou. Šofér prudce zabrzdil. Vyhrnula se rodina z Moravy. Mezi ranci na zadním okénku trůnila gondola.
+Před hotelem se rozjíždělo embéčko s brněnskou značkou. Šofér prudce zabrzdil. Vyhrnula se rodina z Moravy. Mezi ranci na zadním okénku trůnila gondola.
 
-> – Dovezl nám ho zdejší autoklub! Našli ho u Benátek tady s tím!
+– Dovezl nám ho zdejší autoklub! Našli ho u Benátek tady s tím!
 
-> Na víko krabice od bot zloděj aut kostrbatě napsal:
+Na víko krabice od bot zloděj aut kostrbatě napsal:
 
-> EVVIVA PRAGA ROSSA, PRAGA LIBERA!
+EVVIVA PRAGA ROSSA, PRAGA LIBERA!
 
-> – Jedeme domů, řekl šťastně. – V nejhorším to zkusím napřed přes tu Dyji. A co vy?
+– Jedeme domů, řekl šťastně. – V nejhorším to zkusím napřed přes tu Dyji. A co vy?
 
-> – Pojedu taky, řekl jsem.
+– Pojedu taky, řekl jsem.
 
-> – Nechcete s náma?
+– Nechcete s náma?
 
-> – Musím ještě počkat. Do půlnoci…!
+– Musím ještě počkat. Do půlnoci…!
 
-> Vyslovil jsem ten čas a věděl, že půlnoc je tedy lhůta, kterou dávám i jí.
+Vyslovil jsem ten čas a věděl, že půlnoc je tedy lhůta, kterou dávám i jí.
 
-> – Tak to nás do Milána máte, já jezdím kvůli těm svejm ženskejm jako s hnojem.
+– Tak to nás do Milána máte, já jezdím kvůli těm svejm ženskejm jako s hnojem.
 
-> – Už jsme byli okupovaný a vykradený, řekla paní, – tak ať jsme aspoň celí!
+– Už jsme byli okupovaný a vykradený, řekla paní, – tak ať jsme aspoň celí!
 
-> Mávali mi až za roh. Pak jsem vešel do hotelu a požádal, aby mi připravili účet. Spolu s klíči jsem dostal opět dopis s americkým orlem.
+Mávali mi až za roh. Pak jsem vešel do hotelu a požádal, aby mi připravili účet. Spolu s klíči jsem dostal opět dopis s americkým orlem.
 
-> „Dear Sir,“ psal kulturní přidělenec, „právě jsme pro Vás obdrželi další depeši z Iowy, stát Iowa. Očekáváme naléhavě Vaši ctěnou zprávu.
+„Dear Sir,“ psal kulturní přidělenec, „právě jsme pro Vás obdrželi další depeši z Iowy, stát Iowa. Očekáváme naléhavě Vaši ctěnou zprávu.
 
-> DEAR SIR COMA UNIVERSITY OF IOWA STATE IOWA SAMOZREJME UPRIMNE ZVE I VASI MANZELKU TECKA V OCEKAVANI VASI ZPRAVY YOURS SINCERELY UNIVERSITY OF IOWA STATE IOWA END+++“
+DEAR SIR COMA UNIVERSITY OF IOWA STATE IOWA SAMOZREJME UPRIMNE ZVE I VASI MANZELKU TECKA V OCEKAVANI VASI ZPRAVY YOURS SINCERELY UNIVERSITY OF IOWA STATE IOWA END+++“
 
-> Pozdě! vzkázal jsem jim nebeským telegrafem. Kostky jsou vrženy!
+Pozdě! vzkázal jsem jim nebeským telegrafem. Kostky jsou vrženy!
 
 * * *
 
@@ -4295,35 +4295,35 @@ Vrazil jsem do sebe velkou vodku. Nepomohlo to ani v nejmenším.
 Čtvrtek 22. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
-> Pokoj, do něhož jsem vstoupil, nepřipomínal žádný z pokojů, ve kterých jsem s ní kdy bydlel. Prožil jsem krátký okamžik uspokojení, jaké jsem od svého druhého rozvodu cítil téměř stále, než jsem potkal ji. Občasný pocit samoty se dal překousnout. Fantastické a vždy uklidňující bylo vědomí, že po desítkách let, kdy jsem se dělil o své soukromí s jinými lidmi, třebas blízkými, jsem to náhle já a jen já, kdo určuje, v jakém stavu najde svůj příbytek, který právě opouští. Tlustá a hodná paní Blechová ze Starého Města, co mi nakupovala, uklízela a prala, se naučila pohybovat v mém malinkém bytě jako archeolog: dobývala z předmětů vrstvy prachu, aniž jimi sebemíň pohnula. Navíc ji s přísností bývalého disponenta Živnobanky střežil můj starý, báječný strýc Josef, který mi vedl archiv. To bylo pryč. Onoho rána, kdy se tam poprvé probudila ona, začal zběsilý pohyb věcí, který pak už navždy doprovázel naše stěhování i cestování jako roj podrážděných včel. Dnes poprvé tomu bylo jinak. Stačila otevřít pouze vak s letními šaty, ostatní zavazadla byla dosud úhledně složena v rohu místnosti, jak jsem je včera přinesl z auta.
+Pokoj, do něhož jsem vstoupil, nepřipomínal žádný z pokojů, ve kterých jsem s ní kdy bydlel. Prožil jsem krátký okamžik uspokojení, jaké jsem od svého druhého rozvodu cítil téměř stále, než jsem potkal ji. Občasný pocit samoty se dal překousnout. Fantastické a vždy uklidňující bylo vědomí, že po desítkách let, kdy jsem se dělil o své soukromí s jinými lidmi, třebas blízkými, jsem to náhle já a jen já, kdo určuje, v jakém stavu najde svůj příbytek, který právě opouští. Tlustá a hodná paní Blechová ze Starého Města, co mi nakupovala, uklízela a prala, se naučila pohybovat v mém malinkém bytě jako archeolog: dobývala z předmětů vrstvy prachu, aniž jimi sebemíň pohnula. Navíc ji s přísností bývalého disponenta Živnobanky střežil můj starý, báječný strýc Josef, který mi vedl archiv. To bylo pryč. Onoho rána, kdy se tam poprvé probudila ona, začal zběsilý pohyb věcí, který pak už navždy doprovázel naše stěhování i cestování jako roj podrážděných včel. Dnes poprvé tomu bylo jinak. Stačila otevřít pouze vak s letními šaty, ostatní zavazadla byla dosud úhledně složena v rohu místnosti, jak jsem je včera přinesl z auta.
 
-> Otevřel jsem okno, aby sem vnikl ochlazený noční vzduch, a pustil rádio. Osvěžil jsem se v otřesně zašlém umyvadle a lehl si nahý na postel.
+Otevřel jsem okno, aby sem vnikl ochlazený noční vzduch, a pustil rádio. Osvěžil jsem se v otřesně zašlém umyvadle a lehl si nahý na postel.
 
-> Šlo na jedenáctou, a svobodný legální vysílač Československo se ohlásil Smetanovým Blaníkem jako kdysi za dnů míru, kdy byla tato hodina vyhrazena milovníkům vážné hudby. Zavřel jsem oči. Po dlouhém čase jsem uviděl mámu, skloněnou nad pletacími dráty.
+Šlo na jedenáctou, a svobodný legální vysílač Československo se ohlásil Smetanovým Blaníkem jako kdysi za dnů míru, kdy byla tato hodina vyhrazena milovníkům vážné hudby. Zavřel jsem oči. Po dlouhém čase jsem uviděl mámu, skloněnou nad pletacími dráty.
 
-> ALE TY MUSÍŠ DALEKO DOHLÍDNOUT!
+ALE TY MUSÍŠ DALEKO DOHLÍDNOUT!
 
-> Ano, byl jsem to zas já, já sám. Rozhodnutí, které jsem učinil před hodinou, jako by mě od základů proměnilo_. Klidně jeď!_ Navrátila se jistota z Perugie. Věděl jsem, že za hodinu vstanu a vyjedu – k Blaníku. Že zřejmě bez ní, neprobouzelo už ve mně ani lítost. Rána, kterou vypálil tank na titulní stránce novin, byla s to přehlušit každé osobní trauma. _Jeď a nestarej se!_
+Ano, byl jsem to zas já, já sám. Rozhodnutí, které jsem učinil před hodinou, jako by mě od základů proměnilo_. Klidně jeď!_ Navrátila se jistota z Perugie. Věděl jsem, že za hodinu vstanu a vyjedu – k Blaníku. Že zřejmě bez ní, neprobouzelo už ve mně ani lítost. Rána, kterou vypálil tank na titulní stránce novin, byla s to přehlušit každé osobní trauma. _Jeď a nestarej se!_
 
-> Teď, když jsem znovu soudně myslel, mi bylo nepochopitelné, že jsem se před osmačtyřiceti hodinami slavnostně rozhodl změnit kvůli ní celý způsob života, _vrať se sám!_ vzdát se toho, co v něm bylo nejpodstatnější: své práce, jejímž smyslem bylo přece vždycky mnohem víc než vymýšlení fiktivních postav a dějů. V neznámé trattorii na úpatí sanmarinské skály jsem pohodil to, _vrať se sám, mě už tvé vyhlídky nezajímají_, co bylo mým úhelným dědictvím a mělo být i odkazem: poselství českého ducha staré pět set padesát tři let.
+Teď, když jsem znovu soudně myslel, mi bylo nepochopitelné, že jsem se před osmačtyřiceti hodinami slavnostně rozhodl změnit kvůli ní celý způsob života, _vrať se sám!_ vzdát se toho, co v něm bylo nejpodstatnější: své práce, jejímž smyslem bylo přece vždycky mnohem víc než vymýšlení fiktivních postav a dějů. V neznámé trattorii na úpatí sanmarinské skály jsem pohodil to, _vrať se sám, mě už tvé vyhlídky nezajímají_, co bylo mým úhelným dědictvím a mělo být i odkazem: poselství českého ducha staré pět set padesát tři let.
 
-> Šestého července 1415 se dopustila Moc jednoho ze svých krvavých omylů, když dala v Kostnici upálit českého kněze, aby ostříhala pokojnou slovanskou mysl jeho oveček před kacířskými bludy. Trpěl bolestí zubů, a mě často napadá jako téma hry, co by se asi stalo, kdyby ho byli dovedli k mastičkáři a poslali pak s otcovským napomenutím zpět do Prahy, _můžeme Prahu vyměnit_, jak mu to zaručoval císařův glejt. Kdo ví, zda by nebyl vyveden z míry jako tolik intelektuálů před ním i po něm, když jim chytrý vladař místo kopance uštědřil řád. Kdo ví, jak by vypadaly naše dějiny, kdyby se vrátil do Čech takto poučen, _můžeme Prahu vyměnit za kterékoli město_, aby usilovněji než dřív učil pokorné poslušnosti. Dali však opět jednou přednost hranici a naivně rozmetali jeho popel do Rýna, takže vyvolali hněv posledního pasáčka vepřů, který se rozhodl stát se kacířem, podobně jako dnes v noci pražští hippies píšou na cizí pancíře slovo DUBČEK. _Můžeme Prahu vyměnit za kterékoli město, aniž bychom postrádali víc než pár krásných portálů, jaké lze najít i jinde_. Probudili hnutí, které se v srdci středověké Evropy demokratizovalo natolik, že i po porážce husitů vypsalo na trůn téměř moderní konkurz, v němž zvítězil nad pomazanými hlavami Evropy mimořádně zdatný domácí politik Jiřík z Poděbrad.
+Šestého července 1415 se dopustila Moc jednoho ze svých krvavých omylů, když dala v Kostnici upálit českého kněze, aby ostříhala pokojnou slovanskou mysl jeho oveček před kacířskými bludy. Trpěl bolestí zubů, a mě často napadá jako téma hry, co by se asi stalo, kdyby ho byli dovedli k mastičkáři a poslali pak s otcovským napomenutím zpět do Prahy, _můžeme Prahu vyměnit_, jak mu to zaručoval císařův glejt. Kdo ví, zda by nebyl vyveden z míry jako tolik intelektuálů před ním i po něm, když jim chytrý vladař místo kopance uštědřil řád. Kdo ví, jak by vypadaly naše dějiny, kdyby se vrátil do Čech takto poučen, _můžeme Prahu vyměnit za kterékoli město_, aby usilovněji než dřív učil pokorné poslušnosti. Dali však opět jednou přednost hranici a naivně rozmetali jeho popel do Rýna, takže vyvolali hněv posledního pasáčka vepřů, který se rozhodl stát se kacířem, podobně jako dnes v noci pražští hippies píšou na cizí pancíře slovo DUBČEK. _Můžeme Prahu vyměnit za kterékoli město, aniž bychom postrádali víc než pár krásných portálů, jaké lze najít i jinde_. Probudili hnutí, které se v srdci středověké Evropy demokratizovalo natolik, že i po porážce husitů vypsalo na trůn téměř moderní konkurz, v němž zvítězil nad pomazanými hlavami Evropy mimořádně zdatný domácí politik Jiřík z Poděbrad.
 
-> Šestého listopadu 1620, v další bitvě o tentýž trůn, porazili však katoličtí Habsburkové špatně motivovaná vojska českých protestantských stavů na Bílé Hoře u Prahy, _můžeme vyměnit hymnu_, tři kilometry od letiště v Ruzyni, kde už třetí noc přistává invazní armáda. Opět měla Moc ojedinělou příležitost získat si vyčerpanou a zkorumpovanou zemi velkodušností, jež by byla poražené porazila i podruhé: v mysli lidu. Kdo ví, zda by byl nepřijal náboženství i kulturu vítězů tím vděčněji, _můžeme vyměnit hymnu i vlajku_, oč zdrženlivěji by se mu nabízely. Dali však opět jednou přednost monstrprocesu a za jediné červnové dopoledne roku 1621 postínali, zvěšeli a kolem dolámali výkvět české šlechty. Její zbytek a na ní závislá protestantská inteligence v čele s Komenským musela před Temnem prchnout do ciziny, kde marně hledala spojence, dokud nenašla hrob. Nato zavřela Moc české školy a spálila české knihy, čímž donutila sedláky v nejzapadlejších koutech země, pokud chtěli dál obcovat se svým Bohem pod obojí, aby vzdor hrdelním trestům ukrývali či dokonce po nocích opisovali Bibli kralickou, podobně jako se loni po sjezdu spisovatelů opisoval diskusní příspěvek Ludvíka Vaculíka. Tak způsobila, že se nová česká inteligence narodila o dvě století později pod doškovými střechami vesnic a za průmyslové revoluce přes dělnické periferie v krátkém čase dobyla poněmčená města, aby se rázem stala nejdemokratičtější inteligencí Evropy. Učitelé, kněží i potulní herci, sami ještě vychovaní v německých školách, vrátili zasuté řeči otců zvuk, _můžeme vyměnit hymnu, vlajku i řeč_, zkrotili pravidly její zdivočelou gramatiku a doplnili prořídlý slovník nejen proto, aby mohla reflektovat moderní myšlení, ale aby se okamžitě stala hlavní zbraní lidu v jeho zápasech – národních i sociálních!
+Šestého listopadu 1620, v další bitvě o tentýž trůn, porazili však katoličtí Habsburkové špatně motivovaná vojska českých protestantských stavů na Bílé Hoře u Prahy, _můžeme vyměnit hymnu_, tři kilometry od letiště v Ruzyni, kde už třetí noc přistává invazní armáda. Opět měla Moc ojedinělou příležitost získat si vyčerpanou a zkorumpovanou zemi velkodušností, jež by byla poražené porazila i podruhé: v mysli lidu. Kdo ví, zda by byl nepřijal náboženství i kulturu vítězů tím vděčněji, _můžeme vyměnit hymnu i vlajku_, oč zdrženlivěji by se mu nabízely. Dali však opět jednou přednost monstrprocesu a za jediné červnové dopoledne roku 1621 postínali, zvěšeli a kolem dolámali výkvět české šlechty. Její zbytek a na ní závislá protestantská inteligence v čele s Komenským musela před Temnem prchnout do ciziny, kde marně hledala spojence, dokud nenašla hrob. Nato zavřela Moc české školy a spálila české knihy, čímž donutila sedláky v nejzapadlejších koutech země, pokud chtěli dál obcovat se svým Bohem pod obojí, aby vzdor hrdelním trestům ukrývali či dokonce po nocích opisovali Bibli kralickou, podobně jako se loni po sjezdu spisovatelů opisoval diskusní příspěvek Ludvíka Vaculíka. Tak způsobila, že se nová česká inteligence narodila o dvě století později pod doškovými střechami vesnic a za průmyslové revoluce přes dělnické periferie v krátkém čase dobyla poněmčená města, aby se rázem stala nejdemokratičtější inteligencí Evropy. Učitelé, kněží i potulní herci, sami ještě vychovaní v německých školách, vrátili zasuté řeči otců zvuk, _můžeme vyměnit hymnu, vlajku i řeč_, zkrotili pravidly její zdivočelou gramatiku a doplnili prořídlý slovník nejen proto, aby mohla reflektovat moderní myšlení, ale aby se okamžitě stala hlavní zbraní lidu v jeho zápasech – národních i sociálních!
 
-> Proto byl v mé školní čítance Komenský přítomen ne­jen svým objevným pedagogickým principem SCHOLA LUDUS – ŠKOLA HROU, ale především svým vlastenectvím evropsky nadnárodním. Proto mě obrozenecká i demokratická literatura, provázející mé dospívání, uchvacovala nejen hledáním svébytných výrazových prostředků, ale neméně i konkrétní společenskou aktivitou důrazně sociálního ražení. _Můžeme vyměnit hymnu, vlajku i řeč, aniž bychom ztráceli víc než pár prázdných symbolů, jaké jsou k mání všude._ Proto jsem v okamžiku, kdy se mi v červnu 1944 vnutil první neumělý verš k oslavě spojenecké invaze v Normandii, přijal zcela samozřejmě i štafetový kolík české literatury: ANGAŽOVANOST.
+Proto byl v mé školní čítance Komenský přítomen ne­jen svým objevným pedagogickým principem SCHOLA LUDUS – ŠKOLA HROU, ale především svým vlastenectvím evropsky nadnárodním. Proto mě obrozenecká i demokratická literatura, provázející mé dospívání, uchvacovala nejen hledáním svébytných výrazových prostředků, ale neméně i konkrétní společenskou aktivitou důrazně sociálního ražení. _Můžeme vyměnit hymnu, vlajku i řeč, aniž bychom ztráceli víc než pár prázdných symbolů, jaké jsou k mání všude._ Proto jsem v okamžiku, kdy se mi v červnu 1944 vnutil první neumělý verš k oslavě spojenecké invaze v Normandii, přijal zcela samozřejmě i štafetový kolík české literatury: ANGAŽOVANOST.
 
-> S takovou tradicí a s takovým obsahem se nicméně téměř dobrovolně a sama vmanipulovala do nového Temna! Stačila válečná mezera ve všeobecném vzdělání i rozhledu a poválečný posun v myšlení, kdy informaci nahradily dobře organizované emoce. Česká i slovenská komunistická inteligence fungovaly jako neobyčejně výkonný elektronický mozek, který byl špatně naprogramován. Sotva však byla chyba odhalena, _změnit vlast!_ zazněl jako první hlas dvou českých spisovatelů, kteří se už v roce 1956 přihlásili ke svému selhání a vyvodili z něho důsledky. Jakou důležitost měly Seifertův i Hrubínův projev na druhém sjezdu, které jsem tehdy ještě odmítl, protože urážely mou idiotskou nevinnost! Především jejich zásluhou se mohla stát literatura u nás tak brzy součástí nové politické avantgardy, _změnit vlast není pro nás těžké_, která se formovala především uvnitř strany, aby ji osvobodila z léna Prvního Tajemníka a jeho apa­rátu. I když jí dali program ekonomové a politologové, i když se její bází stala vědecká pracoviště a továrny, byl to hlas literatury, který ji scelil, protože nahradil uměle zpřetrhané komunikace.
+S takovou tradicí a s takovým obsahem se nicméně téměř dobrovolně a sama vmanipulovala do nového Temna! Stačila válečná mezera ve všeobecném vzdělání i rozhledu a poválečný posun v myšlení, kdy informaci nahradily dobře organizované emoce. Česká i slovenská komunistická inteligence fungovaly jako neobyčejně výkonný elektronický mozek, který byl špatně naprogramován. Sotva však byla chyba odhalena, _změnit vlast!_ zazněl jako první hlas dvou českých spisovatelů, kteří se už v roce 1956 přihlásili ke svému selhání a vyvodili z něho důsledky. Jakou důležitost měly Seifertův i Hrubínův projev na druhém sjezdu, které jsem tehdy ještě odmítl, protože urážely mou idiotskou nevinnost! Především jejich zásluhou se mohla stát literatura u nás tak brzy součástí nové politické avantgardy, _změnit vlast není pro nás těžké_, která se formovala především uvnitř strany, aby ji osvobodila z léna Prvního Tajemníka a jeho apa­rátu. I když jí dali program ekonomové a politologové, i když se její bází stala vědecká pracoviště a továrny, byl to hlas literatury, který ji scelil, protože nahradil uměle zpřetrhané komunikace.
 
-> Co dělají, kde jsou v této těžké hodině všichni mí přátelé z Pražského jara?
+Co dělají, kde jsou v této těžké hodině všichni mí přátelé z Pražského jara?
 
-> Blaník dozněl právě včas, abych zaslechl na schodišti dvojí krok. Doslova jsem skočil do kalhot. Nepočítal jsem, že by ji doprovodil až do pokoje. Okamžitě mě však napadlo, že za jeho přítomnosti proběhne alespoň náš poslední rozhovor bez hysterie. Začal jsem být zvědav i na jeho reakci. Bude jí domlouvat, aby odjela se mnou, anebo jí nabídne nezištnou pomoc, pokud tu zůstane? _Změnit vlast není pro nás těžší než přestoupit z tramvaje do tramvaje!_ Nedalo se ani vyloučit, že jsou dávno domluveni! Ta představa mě zabolela. A bolest znepokojila. Musel jsem bezpodmínečně potlačit návaly sentimentality i ješitnosti. Musel jsem konečně vystoupit z vlaku, který mě unášel nesprávným směrem, a vrátit se po vlastní stopě k sobě samému.
+Blaník dozněl právě včas, abych zaslechl na schodišti dvojí krok. Doslova jsem skočil do kalhot. Nepočítal jsem, že by ji doprovodil až do pokoje. Okamžitě mě však napadlo, že za jeho přítomnosti proběhne alespoň náš poslední rozhovor bez hysterie. Začal jsem být zvědav i na jeho reakci. Bude jí domlouvat, aby odjela se mnou, anebo jí nabídne nezištnou pomoc, pokud tu zůstane? _Změnit vlast není pro nás těžší než přestoupit z tramvaje do tramvaje!_ Nedalo se ani vyloučit, že jsou dávno domluveni! Ta představa mě zabolela. A bolest znepokojila. Musel jsem bezpodmínečně potlačit návaly sentimentality i ješitnosti. Musel jsem konečně vystoupit z vlaku, který mě unášel nesprávným směrem, a vrátit se po vlastní stopě k sobě samému.
 
-> NEJTĚŽŠÍ JE TĚCH PRVNÍCH SEDMDESÁT LET.
+NEJTĚŽŠÍ JE TĚCH PRVNÍCH SEDMDESÁT LET.
 
-> Když kroky ztichly u mých dveří, věděl jsem, že to zvládnu.
+Když kroky ztichly u mých dveří, věděl jsem, že to zvládnu.
 
 * * *
 
@@ -4620,53 +4620,53 @@ Oněměl jsem.
 Čtvrtek 22. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
-> Místo zaklepání zarachotil klíč. Kde ho vzala, když náš trčel zevnitř? Otevřel jsem. Plešatý pán na mě hleděl se stejným ustrnutím jako já na něho. Zjistil jsem, že italské koktání se v ničem neliší od českého. Zato jeho společnici omyl vůbec nevzrušil. V minisukni, která odhalovala hubené nohy, s barevnou taštičkou a plochými ňadry jako by vystoupila z Cabiriiných nocí. Pán pohlédl na číslo klíče a začal odemykat sousední dveře. Pochopil jsem, proč se mu mírně třese ruka. Dívce bylo stěží čtrnáct. Hotel měl – vedle toho, že se stal útulkem vzácných hostů z Československa – zřejmě i další významné společenské poslání.
+Místo zaklepání zarachotil klíč. Kde ho vzala, když náš trčel zevnitř? Otevřel jsem. Plešatý pán na mě hleděl se stejným ustrnutím jako já na něho. Zjistil jsem, že italské koktání se v ničem neliší od českého. Zato jeho společnici omyl vůbec nevzrušil. V minisukni, která odhalovala hubené nohy, s barevnou taštičkou a plochými ňadry jako by vystoupila z Cabiriiných nocí. Pán pohlédl na číslo klíče a začal odemykat sousední dveře. Pochopil jsem, proč se mu mírně třese ruka. Dívce bylo stěží čtrnáct. Hotel měl – vedle toho, že se stal útulkem vzácných hostů z Československa – zřejmě i další významné společenské poslání.
 
-> Padl jsem zas na postel a opřel hlavu o ruce. Levé oko se téměř dotýkalo skla mých hodinek. Zblízka se ciferník podobal nočnímu nebi a vteřinová ručička po něm kroužila jako paprsek radaru. _23.00_. Ale na obzoru nikdo. _Myslím, že se_ _svedem bavit i sami_. Za tenkou příčkou opilý smích a tady opět hlas přítele. Četl slova, která jsem psal sotva před měsícem, a přesto už zněla jako ozvěna zašlých pergamenů.
+Padl jsem zas na postel a opřel hlavu o ruce. Levé oko se téměř dotýkalo skla mých hodinek. Zblízka se ciferník podobal nočnímu nebi a vteřinová ručička po něm kroužila jako paprsek radaru. _23.00_. Ale na obzoru nikdo. _Myslím, že se_ _svedem bavit i sami_. Za tenkou příčkou opilý smích a tady opět hlas přítele. Četl slova, která jsem psal sotva před měsícem, a přesto už zněla jako ozvěna zašlých pergamenů.
 
-> JEDNOTNĚ A BEZ ÚSTUPKŮ OBHAJTE CESTU, NA KTEROU JSME VYŠLI A ZE KTERÉ ŽIVI NESEJDEME…
+JEDNOTNĚ A BEZ ÚSTUPKŮ OBHAJTE CESTU, NA KTEROU JSME VYŠLI A ZE KTERÉ ŽIVI NESEJDEME…
 
-> – Vzpomínáte ještě na tuto větu, drazí přátelé u přijímačů? Dva miliony podpisů potvrdily naše odhodlání pevně za ní stát. Byla přece v Poselství občanů předsednictvu ÚV KSČ před jeho odjezdem do Čierné, k jednání s politbyrem ÚV KSSS. Možná že jsme si tehdy ani neuvědomili, co znamená. Teď přišel čas, kdy musíme prověřit naši pevnost a dát této větě smysl, který skutečně má. Když jsme ji jednou řekli, je naší povinností stát za ní i dnes!
+– Vzpomínáte ještě na tuto větu, drazí přátelé u přijímačů? Dva miliony podpisů potvrdily naše odhodlání pevně za ní stát. Byla přece v Poselství občanů předsednictvu ÚV KSČ před jeho odjezdem do Čierné, k jednání s politbyrem ÚV KSSS. Možná že jsme si tehdy ani neuvědomili, co znamená. Teď přišel čas, kdy musíme prověřit naši pevnost a dát této větě smysl, který skutečně má. Když jsme ji jednou řekli, je naší povinností stát za ní i dnes!
 
-> Věta poselství, které se podepisovalo na náměstích a na návsích, až se proměnilo v celonárodní referendum, mi připomněla všechny podobné spisovatelské texty, co jich bylo od Mnichova do dneška. _Mám toho po krk!_ Svět velké literatury nám mohl právem předhodit, že jsme za čtvrt století sepsali víc manifestů, a často sporných! než uměleckých děl, mohl však sotva popřít, že jsme byli v osudových hodinách národní existence svými čtenáři slyšeni a bráni vážně _mám po krk života v kleci!_ jako snad žádní jíní autoři na světě. _23.09_.
+Věta poselství, které se podepisovalo na náměstích a na návsích, až se proměnilo v celonárodní referendum, mi připomněla všechny podobné spisovatelské texty, co jich bylo od Mnichova do dneška. _Mám toho po krk!_ Svět velké literatury nám mohl právem předhodit, že jsme za čtvrt století sepsali víc manifestů, a často sporných! než uměleckých děl, mohl však sotva popřít, že jsme byli v osudových hodinách národní existence svými čtenáři slyšeni a bráni vážně _mám po krk života v kleci!_ jako snad žádní jíní autoři na světě. _23.09_.
 
-> Už třetí noc stojí přes půl milionu těžce ozbrojených a ner­vózních okupantů proti čtrnácti milionům mých uražených a rozhněvaných spoluobčanů. Také oni mají zbraně: celou moderní armádu, _kdyby vtrhly tanky do týhle ulice_, která se uzavřela v kasárnách, a navíc vědomí práva. Co schází, aby kdekoli vyšlehl zoufalý čin, _kdyby vtrhly tanky do týhle ulice, lítaly by ze všech oken láhve s benzinem!_ který by konečně nahradil neexistující kontrarevoluci a rozpoutal dodatečně zdůvodněnou odvetu? Už třetí noc zní však sbor hlasů z legálních vysílačů, _protože jsme srabi!_ které udržuje v provozu spíš vůle než technika, už třetí noc nespí stovky novinářů a spisovatelů, aby zdecimovaní politici neztratili podporu lidu, aby každé ráno vyšla znovu naděje, _protože nejsme hodni své existence!_ která má teď dvě jména: Svědomí a Rozum.
+Už třetí noc stojí přes půl milionu těžce ozbrojených a ner­vózních okupantů proti čtrnácti milionům mých uražených a rozhněvaných spoluobčanů. Také oni mají zbraně: celou moderní armádu, _kdyby vtrhly tanky do týhle ulice_, která se uzavřela v kasárnách, a navíc vědomí práva. Co schází, aby kdekoli vyšlehl zoufalý čin, _kdyby vtrhly tanky do týhle ulice, lítaly by ze všech oken láhve s benzinem!_ který by konečně nahradil neexistující kontrarevoluci a rozpoutal dodatečně zdůvodněnou odvetu? Už třetí noc zní však sbor hlasů z legálních vysílačů, _protože jsme srabi!_ které udržuje v provozu spíš vůle než technika, už třetí noc nespí stovky novinářů a spisovatelů, aby zdecimovaní politici neztratili podporu lidu, aby každé ráno vyšla znovu naděje, _protože nejsme hodni své existence!_ která má teď dvě jména: Svědomí a Rozum.
 
-> DĚLAT, JAKO ŽE JSME SI JICH VŮBEC NEVŠIMLI!
+DĚLAT, JAKO ŽE JSME SI JICH VŮBEC NEVŠIMLI!
 
-> Takové je teď pravidlo hry, které paralyzuje přesilu a za­chraňuje životy. Snad připadáme zbabělí těm mladým Říma­nům, i vlastním synům! Ale ani my nejsme vlastí slepic. Bitva o Londýn, Tobrúk, Sokolovo, Dukla a Dunkerque, tam všude umírali jen v poslední válce Češi i Slováci – a neumírali špatně! Jenže v téhle absurdní situaci nejde o to, předvést parádní sebevraždu: pohřbila by víc než jen dva malé národy. Vleklá choroba socialismu byla teď s to vyhřeznout ve zhoubný nádor. A jatka v srdci Evropy by ji rozdělila na další čtvrtstoletí! Když byla ještě obrovská Čína tučným a bezbranným soustem cvičených válečníků, mohla se bránit tím, že je do sebe tiše, pomalu, ale jistě a beze zbytku vstřebala. Malé a obklíčené Československo mělo dnes jako vždycky jedinou šanci: čelit bezpráví vrozeným intelektem a dědič­nou zkušeností. Zachraňovalo nejen sebe, ale koneckonců i z řetězu utržené spojence, když jim nadlidskou disciplínou dosud zabraňovalo, aby ztratili poslední špetku soudnosti a oddriftovali možná na generace mezi barbary. Rozhodovalo o tom, budou-li čítanky nazývat toto přepadení historickým omylem – anebo krvavým zločinem! _23.23._
+Takové je teď pravidlo hry, které paralyzuje přesilu a za­chraňuje životy. Snad připadáme zbabělí těm mladým Říma­nům, i vlastním synům! Ale ani my nejsme vlastí slepic. Bitva o Londýn, Tobrúk, Sokolovo, Dukla a Dunkerque, tam všude umírali jen v poslední válce Češi i Slováci – a neumírali špatně! Jenže v téhle absurdní situaci nejde o to, předvést parádní sebevraždu: pohřbila by víc než jen dva malé národy. Vleklá choroba socialismu byla teď s to vyhřeznout ve zhoubný nádor. A jatka v srdci Evropy by ji rozdělila na další čtvrtstoletí! Když byla ještě obrovská Čína tučným a bezbranným soustem cvičených válečníků, mohla se bránit tím, že je do sebe tiše, pomalu, ale jistě a beze zbytku vstřebala. Malé a obklíčené Československo mělo dnes jako vždycky jedinou šanci: čelit bezpráví vrozeným intelektem a dědič­nou zkušeností. Zachraňovalo nejen sebe, ale koneckonců i z řetězu utržené spojence, když jim nadlidskou disciplínou dosud zabraňovalo, aby ztratili poslední špetku soudnosti a oddriftovali možná na generace mezi barbary. Rozhodovalo o tom, budou-li čítanky nazývat toto přepadení historickým omylem – anebo krvavým zločinem! _23.23._
 
-> Poprvé od úterního večera v San Marinu, kdy jsem na desítce pohlednic radostně zvěstoval dokonce i v opilé azbuce, že odplouvám z bouří politiky k tichým zátokám umění a lásky, _jeď si sám!_ jsem si znovu vzpomněl na své věrné přátele v Moskvě a v Leningradě. Jak často jsme o půlnoci nakupovali za složené ruble baterie lahví, abychom v soukromí dál vedli nikdy nekončící spor. Jak byly vždycky krátké ty vzrušené noci v malých pokojících, kde nebylo pro lidi k hnutí, _sedali jsme s lidmi, kteří byli neobyčejně nudní!_ u stolů, _23.27_, které sténaly pod nákladem knih a kaviáru, klobás a grafik, not, notesů, sýrů a vodky. Úporně se snažili překonávat letitý hendikep sovětské inteligence – její násilnou izolaci od světa. Stal jsem se kurýrem myšlenek evropských marxistů, které místní listonoši vyloučili z přepravy. Gramsci, Garaudy, Ernst Fischer a Karel Kosík je pohoršovali jako o pár let předtím mě, ale příště mi už uměli přiznat svůj omyl _pořád jsi úporně bojoval za něco, co bylo v podstatě směšné!_ Měl jsem je rád pro spontánnost, s níž navazovali přátelství, i pro oddanost, jakou je pak naplňovali až k hranici sebeobětování. Nahrazovali tak dojemně archaickou péčí, co na vztahu supervelmoci k maličkému souputníku pošlapali kremelští sloni. _23.33. Klidně jeď!_ Naše dějiny, naše kultura, náš způsob myšlení i naše praktické usilování je provokovaly k neustálé plodné konfrontaci. Před vlastní vrchností se zaštiťovali tím, že partneři přece přicházejí z bratrské socialistické země.
+Poprvé od úterního večera v San Marinu, kdy jsem na desítce pohlednic radostně zvěstoval dokonce i v opilé azbuce, že odplouvám z bouří politiky k tichým zátokám umění a lásky, _jeď si sám!_ jsem si znovu vzpomněl na své věrné přátele v Moskvě a v Leningradě. Jak často jsme o půlnoci nakupovali za složené ruble baterie lahví, abychom v soukromí dál vedli nikdy nekončící spor. Jak byly vždycky krátké ty vzrušené noci v malých pokojících, kde nebylo pro lidi k hnutí, _sedali jsme s lidmi, kteří byli neobyčejně nudní!_ u stolů, _23.27_, které sténaly pod nákladem knih a kaviáru, klobás a grafik, not, notesů, sýrů a vodky. Úporně se snažili překonávat letitý hendikep sovětské inteligence – její násilnou izolaci od světa. Stal jsem se kurýrem myšlenek evropských marxistů, které místní listonoši vyloučili z přepravy. Gramsci, Garaudy, Ernst Fischer a Karel Kosík je pohoršovali jako o pár let předtím mě, ale příště mi už uměli přiznat svůj omyl _pořád jsi úporně bojoval za něco, co bylo v podstatě směšné!_ Měl jsem je rád pro spontánnost, s níž navazovali přátelství, i pro oddanost, jakou je pak naplňovali až k hranici sebeobětování. Nahrazovali tak dojemně archaickou péčí, co na vztahu supervelmoci k maličkému souputníku pošlapali kremelští sloni. _23.33. Klidně jeď!_ Naše dějiny, naše kultura, náš způsob myšlení i naše praktické usilování je provokovaly k neustálé plodné konfrontaci. Před vlastní vrchností se zaštiťovali tím, že partneři přece přicházejí z bratrské socialistické země.
 
-> GUTTA CAVAT LAPIDEM NON VI SED SAEPE CADENDO…
+GUTTA CAVAT LAPIDEM NON VI SED SAEPE CADENDO…
 
-> Jeden z nich to řekl otevřeně: Snad právě Československo a jeho Pražské jaro budou těmi kapkami, které jim pomohou opracovat hrubost ruského balvanu nikoli silou, ale stálým dopadáváním…
+Jeden z nich to řekl otevřeně: Snad právě Československo a jeho Pražské jaro budou těmi kapkami, které jim pomohou opracovat hrubost ruského balvanu nikoli silou, ale stálým dopadáváním…
 
-> Teď nás však zavalil!
+Teď nás však zavalil!
 
-> Co asi dělali, co si mysleli právě teď 23.37 herci Olegové Jefremov a Tabakov, dramaturgyně Lála Kotova, můj překladatel Vladimír Savickij? Chápou, jak strašné se stalo neštěstí? Ale i když, i když – co učiní? Patrně to, co odnepaměti všichni osvícení Rusové, když jim zešílí car: opijou se do bezvědomí, _ručím ti za to, že i bez tebe_ aby přehlušili své Hoře z rozumu.
+Co asi dělali, co si mysleli právě teď 23.37 herci Olegové Jefremov a Tabakov, dramaturgyně Lála Kotova, můj překladatel Vladimír Savickij? Chápou, jak strašné se stalo neštěstí? Ale i když, i když – co učiní? Patrně to, co odnepaměti všichni osvícení Rusové, když jim zešílí car: opijou se do bezvědomí, _ručím ti za to, že i bez tebe_ aby přehlušili své Hoře z rozumu.
 
-> Nikdy nezapomenu na ranní minutu v květnu 1945, kdy mi rachot tankových pásů zvěstoval zmrtvýchvstání. Z milionů podobných minut vznikl cit, který spolu s dávnou sympatií k Velkému Slovanskému Bratru prostoupil vědomí osvobozené země. Vydržel dokonce i brutální zkoušku stalinismem. A kriticismus Pražského jara 23.45 jej nespálil, _že i bez tebe budu do večera v Římě_, ale očistil. Nabytá svoboda a rovnost se staly novým impulzem bratrství, protože rovnice vždycky zněly a budou znít:
+Nikdy nezapomenu na ranní minutu v květnu 1945, kdy mi rachot tankových pásů zvěstoval zmrtvýchvstání. Z milionů podobných minut vznikl cit, který spolu s dávnou sympatií k Velkému Slovanskému Bratru prostoupil vědomí osvobozené země. Vydržel dokonce i brutální zkoušku stalinismem. A kriticismus Pražského jara 23.45 jej nespálil, _že i bez tebe budu do večera v Římě_, ale očistil. Nabytá svoboda a rovnost se staly novým impulzem bratrství, protože rovnice vždycky zněly a budou znít:
 
-> LIBERTÉ + EGALITÉ = FRATERNITÉ
+LIBERTÉ + EGALITÉ = FRATERNITÉ
 
-> FRATERNITÉ – (LIBERTÉ + EGALITÉ) = 0
+FRATERNITÉ – (LIBERTÉ + EGALITÉ) = 0
 
-> Co s tím udělaly ty půlnoční minuty z 20. na 21. srpna 68? Co se stalo v duších českých dělníků, opilců a milenců, _do týdne se domluvím!_ když vyšli z podzemí, z barů či z postelí před dělové hlavně těch, které chápali jako své spojence, ano, často i jako bratry? Čekala nás další zkouška, bez níž by dnešní morální vítězství nebylo završeno: až přijde čas účtů, _23.50_ povznést se nad urážku a křivdu, projevit inspirující velkorysost, jako to dokázali třeba Jugoslávci vůči nám, třebaže jsme je tak těžce urazili před dvaceti lety. Vždyť msta není program, _a do měsíce vdávám!_ msta vytlouká jedno bezpráví druhým, msta trestá svedené, zatímco svůdci upevňují své trůny.
+Co s tím udělaly ty půlnoční minuty z 20. na 21. srpna 68? Co se stalo v duších českých dělníků, opilců a milenců, _do týdne se domluvím!_ když vyšli z podzemí, z barů či z postelí před dělové hlavně těch, které chápali jako své spojence, ano, často i jako bratry? Čekala nás další zkouška, bez níž by dnešní morální vítězství nebylo završeno: až přijde čas účtů, _23.50_ povznést se nad urážku a křivdu, projevit inspirující velkorysost, jako to dokázali třeba Jugoslávci vůči nám, třebaže jsme je tak těžce urazili před dvaceti lety. Vždyť msta není program, _a do měsíce vdávám!_ msta vytlouká jedno bezpráví druhým, msta trestá svedené, zatímco svůdci upevňují své trůny.
 
-> _23.53_. Štafeta naděje, kterou si předávaly krajové legální vysílače, dospěla opět do Prahy. Hlas přítele četl poslední zprávy. _Dokonce nejen bohatě, ale i z lásky!_ Vojenské řešení nevykřesalo ani druhý den řešení politické. Vojska okupantů měla strávit i třetí noc pod hvězdami a bez jídla. _23.54_. Sen o nové vládě, _až zmizíš_ která jim otevře brány kasáren a skladů, se rozbíjel o neochvějný lid a neoblomného prezidenta. Bělovlasý muž na Hradě hájil _23.55_ zákop cti a slávy jako kdysi zákopy Sokolova. Čtrnáctý mimořádný sjezd ve Vysočanech _až zmizíš támhle_ potvrdil nutnost i správnost polednové politiky a odsoudil těžké porušení suverenity socialistické země. Byl zvolen nový ÚV bez hlupáků a zrádců. Vybavil jsem si _23.56_ tváře prvního tajemníka strany, předsedy Národního shromáždění a premiéra. Jaký film jim letěl hlavou, _až zmizíš támhle v té protější ulici_, když do jejich pracoven vtrhli cizí výsadkáři a namířili na ně ostře nabité zbraně? Bránili se, anebo rezignovali? Zachovali si důstojnost? Měli _23.57_ strach? Doufali v něco? Věřili něčemu? Mysleli na někoho? Na Boha, na Lenina, nebo na své ženy? Poprvé od smrti Velikých Vůdců, jejichž mýtus i těla obrátil v popel Dvacátý sjezd, mě hluboce dojímal osud politiků. _23.58._
+_23.53_. Štafeta naděje, kterou si předávaly krajové legální vysílače, dospěla opět do Prahy. Hlas přítele četl poslední zprávy. _Dokonce nejen bohatě, ale i z lásky!_ Vojenské řešení nevykřesalo ani druhý den řešení politické. Vojska okupantů měla strávit i třetí noc pod hvězdami a bez jídla. _23.54_. Sen o nové vládě, _až zmizíš_ která jim otevře brány kasáren a skladů, se rozbíjel o neochvějný lid a neoblomného prezidenta. Bělovlasý muž na Hradě hájil _23.55_ zákop cti a slávy jako kdysi zákopy Sokolova. Čtrnáctý mimořádný sjezd ve Vysočanech _až zmizíš támhle_ potvrdil nutnost i správnost polednové politiky a odsoudil těžké porušení suverenity socialistické země. Byl zvolen nový ÚV bez hlupáků a zrádců. Vybavil jsem si _23.56_ tváře prvního tajemníka strany, předsedy Národního shromáždění a premiéra. Jaký film jim letěl hlavou, _až zmizíš támhle v té protější ulici_, když do jejich pracoven vtrhli cizí výsadkáři a namířili na ně ostře nabité zbraně? Bránili se, anebo rezignovali? Zachovali si důstojnost? Měli _23.57_ strach? Doufali v něco? Věřili něčemu? Mysleli na někoho? Na Boha, na Lenina, nebo na své ženy? Poprvé od smrti Velikých Vůdců, jejichž mýtus i těla obrátil v popel Dvacátý sjezd, mě hluboce dojímal osud politiků. _23.58._
 
-> – Končí druhý den okupace, řekl hlas přítele – hlas domova,
+– Končí druhý den okupace, řekl hlas přítele – hlas domova,
 
-> – zůstaňte věrni všem a všemu, na co jste přísahali!
+– zůstaňte věrni všem a všemu, na co jste přísahali!
 
-> V pauze _23.59_ bylo slyšet, _až zmizíš támhle v té protější ulici, přijde mi_, jak za zdí divoce vrže postel. Plešatý pán nemarnil zaplacený čas. Představil jsem si to ještě dětské římské tělo, tak podobné profilu mých dcer, a pojal mě hnus nad světem vůbec.
+V pauze _23.59_ bylo slyšet, _až zmizíš támhle v té protější ulici, přijde mi_, jak za zdí divoce vrže postel. Plešatý pán nemarnil zaplacený čas. Představil jsem si to ještě dětské římské tělo, tak podobné profilu mých dcer, a pojal mě hnus nad světem vůbec.
 
-> Zazněla hymna. _Až zmizíš támhle v té protější ulici, přijde mi, jako bys nikdy nebyl!_ Pustil jsem ji naplno, aby odplavila smutek a kal.
+Zazněla hymna. _Až zmizíš támhle v té protější ulici, přijde mi, jako bys nikdy nebyl!_ Pustil jsem ji naplno, aby odplavila smutek a kal.
 
-> A začal jsem tedy balit.
+A začal jsem tedy balit.
 
 * * *
 
@@ -5317,121 +5317,121 @@ Vůbec jsem mu nerozuměl.
 Pátek 23. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
-> Lavina se dala do pohybu dvě minuty po půlnoci. Sotva dozněla hymna, ozval se opět jeho hlas. Byl neobvykle vzrušený, jako kdysi dávno, když jsme se potkali po dlouhém odloučení.
+Lavina se dala do pohybu dvě minuty po půlnoci. Sotva dozněla hymna, ozval se opět jeho hlas. Byl neobvykle vzrušený, jako kdysi dávno, když jsme se potkali po dlouhém odloučení.
 
-> „Občané! V Praze se očekává noční zatýkání! Přemalujte či strhněte názvy ulic a čísla domů, odstraňte vizitky u bytů i zbylé orientační tabule na silnicích a v obcích v celé zemi!“
+„Občané! V Praze se očekává noční zatýkání! Přemalujte či strhněte názvy ulic a čísla domů, odstraňte vizitky u bytů i zbylé orientační tabule na silnicích a v obcích v celé zemi!“
 
-> Strašlivá bílá stěna se rychle blížila a pod ní mizeli téměř všichni, kdo psali příběh mého života. Strnule jsem stál nad kufrem, z něhož jsem vybíral její věci, a díval se, jak se mi třesou ruce. Do pokoje vstoupil vrátný, kterého jsem dosud nepotkal. Ani on se neobtěžoval klepáním.
+Strašlivá bílá stěna se rychle blížila a pod ní mizeli téměř všichni, kdo psali příběh mého života. Strnule jsem stál nad kufrem, z něhož jsem vybíral její věci, a díval se, jak se mi třesou ruce. Do pokoje vstoupil vrátný, kterého jsem dosud nepotkal. Ani on se neobtěžoval klepáním.
 
-> – Il telefono per Lei.
+– Il telefono per Lei.
 
-> Běžel jsem ze schodů a pocítil s hrůzou, že se mě rychle a nezadržitelně zmocňuje panika. Svůj návrat domů jsem si dosud představoval mimo čas, jak jsem ho prožíval stokrát: táhlé stoupání silnice se náhle zlomí a vyhoupne se dlouhé panorama Prahy; vzdálený Vít mi bude opět připomínat věžičky holubů vztyčené přímo nad mou střechou. Co jsem se rozhodl, dělala mi jedinou starost uzavřená hranice. Byl jsem však přesvědčen, že jakmile ji překročím, splynu přímo s organismem vzdorujícího národa. Teď poprvé mě napadlo, že člověk, který vezme do ruky můj pas, může být sice krajan, ale snad proto nenávistnější nepřítel, než jakým kdy dokáže být voják v cizí uniformě. Jistý hraniční příběh z minulého léta, který mi dosud připomínal spíš frašku, zavoněl náhle krví.
+Běžel jsem ze schodů a pocítil s hrůzou, že se mě rychle a nezadržitelně zmocňuje panika. Svůj návrat domů jsem si dosud představoval mimo čas, jak jsem ho prožíval stokrát: táhlé stoupání silnice se náhle zlomí a vyhoupne se dlouhé panorama Prahy; vzdálený Vít mi bude opět připomínat věžičky holubů vztyčené přímo nad mou střechou. Co jsem se rozhodl, dělala mi jedinou starost uzavřená hranice. Byl jsem však přesvědčen, že jakmile ji překročím, splynu přímo s organismem vzdorujícího národa. Teď poprvé mě napadlo, že člověk, který vezme do ruky můj pas, může být sice krajan, ale snad proto nenávistnější nepřítel, než jakým kdy dokáže být voják v cizí uniformě. Jistý hraniční příběh z minulého léta, který mi dosud připomínal spíš frašku, zavoněl náhle krví.
 
-> V hotelu nebyla ani telefonní kabina, sluchátko leželo na pultě recepce, u níž postával další nerovný pár. Nevadilo mi to. Nevadilo mi vůbec nic. Zatímco jim vydával klíče, vzal jsem ten kousek bakelitu, jako by byl poukázka na život.
+V hotelu nebyla ani telefonní kabina, sluchátko leželo na pultě recepce, u níž postával další nerovný pár. Nevadilo mi to. Nevadilo mi vůbec nic. Zatímco jim vydával klíče, vzal jsem ten kousek bakelitu, jako by byl poukázka na život.
 
-> – Haló! Haló! Jsi to ty??
+– Haló! Haló! Jsi to ty??
 
-> – Ano, řekla.
+– Ano, řekla.
 
-> Slyšel jsem ji strašně nezřetelně. Ale byla tu, nablízku, byla v tomto městě. Hráz argumentů, kterou jsem tak dlouho a pečlivě stavěl mezi nás dva, aby zasypala lásku i zvyk, se rozpadla. Pohltila ji puklá zem.
+Slyšel jsem ji strašně nezřetelně. Ale byla tu, nablízku, byla v tomto městě. Hráz argumentů, kterou jsem tak dlouho a pečlivě stavěl mezi nás dva, aby zasypala lásku i zvyk, se rozpadla. Pohltila ji puklá zem.
 
-> – Prosím tě, přijeď sem, já tu na tebe čekám!
+– Prosím tě, přijeď sem, já tu na tebe čekám!
 
-> Řekla něco, čemu jsem nerozuměl.
+Řekla něco, čemu jsem nerozuměl.
 
-> – Špatně tě slyším! Mluv nahlas!
+– Špatně tě slyším! Mluv nahlas!
 
-> Jako každý, kdo neslyší, začal jsem sám křičet. Nikoho z Italů to nevzrušilo, byl to jejich běžný životní projev. Pán a hodinová slečna kráčeli v objetí do schodů, vrátný se ponořil do sportovní rubriky Corriere della sera. Na jih od Alp existoval jediný člověk, kterého jsem mohl obtížit svou úzkostí.
+Jako každý, kdo neslyší, začal jsem sám křičet. Nikoho z Italů to nevzrušilo, byl to jejich běžný životní projev. Pán a hodinová slečna kráčeli v objetí do schodů, vrátný se ponořil do sportovní rubriky Corriere della sera. Na jih od Alp existoval jediný člověk, kterého jsem mohl obtížit svou úzkostí.
 
-> – Kde jsi?? křičel jsem.
+– Kde jsi?? křičel jsem.
 
-> – V Praze…
+– V Praze…
 
-> Poslech byl trochu lepší. Zato můj stav se rychle zhoršoval. Rozbušilo se mi srdce. Musel jsem se opřít o pult.
+Poslech byl trochu lepší. Zato můj stav se rychle zhoršoval. Rozbušilo se mi srdce. Musel jsem se opřít o pult.
 
-> – Prosím tě, neblbni, není na to čas! Odkud voláš??
+– Prosím tě, neblbni, není na to čas! Odkud voláš??
 
-> – No z Prahy…
+– No z Prahy…
 
-> Teprve pak jsem, spíš instinktem, pochopil, že je to hovor, který jsem objednal před čtyřiadvaceti hodinami. Mluvil jsem se svou bývalou druhou ženou.
+Teprve pak jsem, spíš instinktem, pochopil, že je to hovor, který jsem objednal před čtyřiadvaceti hodinami. Mluvil jsem se svou bývalou druhou ženou.
 
-> – To je ohromné! řekla. – Měli jsme strach, že ses vrátil!
+– To je ohromné! řekla. – Měli jsme strach, že ses vrátil!
 
-> Vzpamatoval jsem se.
+Vzpamatoval jsem se.
 
-> – Strach mám já o vás. Co je s vámi? Co děcka?
+– Strach mám já o vás. Co je s vámi? Co děcka?
 
-> – V pořádku, řekla. – Večer jsme je seřezali, protože ráno utekli a celý den chodili někde s vlajkou.
+– V pořádku, řekla. – Večer jsme je seřezali, protože ráno utekli a celý den chodili někde s vlajkou.
 
-> My, to byla ona a její dnešní partner.
+My, to byla ona a její dnešní partner.
 
-> – Zamkněte je! řekl jsem, – proboha, nepouštějte je z domu! Je to tam zlý?
+– Zamkněte je! řekl jsem, – proboha, nepouštějte je z domu! Je to tam zlý?
 
-> – Je, řekla, – moc. Máme plnou ulici tanků. Nevracej se!
+– Je, řekla, – moc. Máme plnou ulici tanků. Nevracej se!
 
-> – Právě balím. Zítra v noci jsem v Praze.
+– Právě balím. Zítra v noci jsem v Praze.
 
-> Skoro vykřikla.
+Skoro vykřikla.
 
-> – Prosím tě, zůstaň tam! My jsme tak rádi, že jste venku!
+– Prosím tě, zůstaň tam! My jsme tak rádi, že jste venku!
 
-> Vy, to byla pro ni vždycky i moje dnešní… co…??
+Vy, to byla pro ni vždycky i moje dnešní… co…??
 
-> – Proč…?
+– Proč…?
 
-> – Volala tě sem spousta lidí, abys nechodil domů!
+– Volala tě sem spousta lidí, abys nechodil domů!
 
-> – Ale proč??
+– Ale proč??
 
-> – U vás na Hradčanském se střílelo. Máte prostřílená okna!
+– U vás na Hradčanském se střílelo. Máte prostřílená okna!
 
-> – To je snad pitomost!!
+– To je snad pitomost!!
 
-> – Je to pravda! Nikdo už nespí doma. Tvoji kamarádi zmizeli!
+– Je to pravda! Nikdo už nespí doma. Tvoji kamarádi zmizeli!
 
-> – Jak zmizeli…?
+– Jak zmizeli…?
 
-> – Nevíme. Nikdo nic neví. Je to jak za války. Slib mi, že tam zůstaneš, jinak se zblázníme strachy.
+– Nevíme. Nikdo nic neví. Je to jak za války. Slib mi, že tam zůstaneš, jinak se zblázníme strachy.
 
-> – Proboha, řekl jsem znovu, – nedělej mi to těžší!
+– Proboha, řekl jsem znovu, – nedělej mi to těžší!
 
-> – Ty nám taky ne!
+– Ty nám taky ne!
 
-> – Víš, co by to pro mne znamenalo?
+– Víš, co by to pro mne znamenalo?
 
-> – Vím, řekla, – ale kdysi jsem tě nechala odejít, tak teď zas ty udělej něco pro mě. Kdyby bylo nejhůř, snad dostaneš ven aspoň děti…!
+– Vím, řekla, – ale kdysi jsem tě nechala odejít, tak teď zas ty udělej něco pro mě. Kdyby bylo nejhůř, snad dostaneš ven aspoň děti…!
 
-> Slyšel jsem kapelu potápějícího se Titaniku. Nebyl jsem s to mluvit.
+Slyšel jsem kapelu potápějícího se Titaniku. Nebyl jsem s to mluvit.
 
-> – Mám ti je dát? zeptala se. – Řeknou ti to samy!
+– Mám ti je dát? zeptala se. – Řeknou ti to samy!
 
-> – Nebuď je…
+– Nebuď je…
 
-> Strašně jsem je chtěl slyšet.
+Strašně jsem je chtěl slyšet.
 
-> – Já je probudím, řekla. – Bylo by jim zítra líto.
+– Já je probudím, řekla. – Bylo by jim zítra líto.
 
-> – Ano, řekl jsem, – probuď je.
+– Ano, řekl jsem, – probuď je.
 
-> Televize mého mozku sledovala její cestu z kdysi krásné haly, zmrzačené po rozvodu cihlovou příčkou, předsíní do pokoje, kam padá zář lucerny na veselé hříbě, které jsem kdysi přivezl přímo z Číny od pana Či-paj-š’. Viděl jsem, jak se sklání nad gauči a opatrně, aby se nelekli, budí jednoho po druhém. Viděl jsem bosé nohy, které šátrají po papučích, když omámené oči uhýbají před světlem. Pak šla v čele náměsíčního průvodu zpět ke sluchátku, od něhož až sem vedl drát, tenký jako má naděje. Právě, když jsem to očekával, ozval se ženský hlas:
+Televize mého mozku sledovala její cestu z kdysi krásné haly, zmrzačené po rozvodu cihlovou příčkou, předsíní do pokoje, kam padá zář lucerny na veselé hříbě, které jsem kdysi přivezl přímo z Číny od pana Či-paj-š’. Viděl jsem, jak se sklání nad gauči a opatrně, aby se nelekli, budí jednoho po druhém. Viděl jsem bosé nohy, které šátrají po papučích, když omámené oči uhýbají před světlem. Pak šla v čele náměsíčního průvodu zpět ke sluchátku, od něhož až sem vedl drát, tenký jako má naděje. Právě, když jsem to očekával, ozval se ženský hlas:
 
-> – Tre mille sette cento lire, signore.
+– Tre mille sette cento lire, signore.
 
-> Křičel jsem tak, že i vrátný pochopil naléhavost mého přání. Řekli mu však, že mohu nejvýš objednat nový hovor. Neměl jsem sílu. Vlekl jsem se po schodech a viděl je, jak stojí okolo mlčícího aparátu, zatímco pod okny hrozivě ční dělové hlavně.
+Křičel jsem tak, že i vrátný pochopil naléhavost mého přání. Řekli mu však, že mohu nejvýš objednat nový hovor. Neměl jsem sílu. Vlekl jsem se po schodech a viděl je, jak stojí okolo mlčícího aparátu, zatímco pod okny hrozivě ční dělové hlavně.
 
-> V pokoji byl stále přítomen Slávkův hlas. Oznamoval, že XIV. mimořádný sjezd strany vyhlásil na dnešní poledne generální stávku. Orchestr Titaniku přehlušily sirény. Sirény okupace, sirény Května, sirény Února, sirény okupace. Kruh se uzavřel. Byl jsem mimo.
+V pokoji byl stále přítomen Slávkův hlas. Oznamoval, že XIV. mimořádný sjezd strany vyhlásil na dnešní poledne generální stávku. Orchestr Titaniku přehlušily sirény. Sirény okupace, sirény Května, sirény Února, sirény okupace. Kruh se uzavřel. Byl jsem mimo.
 
-> „Občané!“ ozvalo se znovu, „zadržte vozidla AE-40-01 a ABA-71-19, která jedou zatýkat naše lidi. Opakuji…“
+„Občané!“ ozvalo se znovu, „zadržte vozidla AE-40-01 a ABA-71-19, která jedou zatýkat naše lidi. Opakuji…“
 
-> Svobodný vysílač utonul v atmosférické poruše. Jako když blesk naráz odhalí celou plastickou mapu krajiny, vyvstalo přede mnou 600 stran Solženicynova mohutného románu V prvním kruhu, které jsem loni musel přečíst za tři noci v moskevském hotelu a ve dne nosit s sebou v aktovce, aby je neobjevily tajné pokojské. I v téměř nečitelném opisu, který koupil můj sovětský přítel fyzik za měsíční plat, byla do detailu zmapována odvrácená tvář socialismu, jak ji stvořil Sedmého dne revoluce zrůdný génius Stalina.
+Svobodný vysílač utonul v atmosférické poruše. Jako když blesk naráz odhalí celou plastickou mapu krajiny, vyvstalo přede mnou 600 stran Solženicynova mohutného románu V prvním kruhu, které jsem loni musel přečíst za tři noci v moskevském hotelu a ve dne nosit s sebou v aktovce, aby je neobjevily tajné pokojské. I v téměř nečitelném opisu, který koupil můj sovětský přítel fyzik za měsíční plat, byla do detailu zmapována odvrácená tvář socialismu, jak ji stvořil Sedmého dne revoluce zrůdný génius Stalina.
 
-> LASCIATE OGNI SPERANZA VOI CH’ENTRATE!
+LASCIATE OGNI SPERANZA VOI CH’ENTRATE!
 
-> Prskání a šum mne přiváděly k zoufalství. Vypnul jsem rádio. Znovu se ozvalo odvedle vrzání milostného lože. Opřel jsem se o stěnu a pozoroval pokoj, jehož ohavnost jako by právě teď dostávala nový rozměr. Byl to rozměr nekonečného času a na mne poprvé dolehla živoucí tíha beznaděje Remarquových běženců.
+Prskání a šum mne přiváděly k zoufalství. Vypnul jsem rádio. Znovu se ozvalo odvedle vrzání milostného lože. Opřel jsem se o stěnu a pozoroval pokoj, jehož ohavnost jako by právě teď dostávala nový rozměr. Byl to rozměr nekonečného času a na mne poprvé dolehla živoucí tíha beznaděje Remarquových běženců.
 
-> Pak jsem vylovil klíčky, bouchl dveřmi, seběhl po schodech, vyrazil ze dveří, odemkl auto, nasedl a vystartoval jako šílenec.
+Pak jsem vylovil klíčky, bouchl dveřmi, seběhl po schodech, vyrazil ze dveří, odemkl auto, nasedl a vystartoval jako šílenec.
 
 * * *
 
@@ -5729,31 +5729,31 @@ _OBRAZ 50 Exteriér – noc. Volha se vzdaluje._
 Pátek 23. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
-> Vozy byly dva. Jednosměrnou ulicí jely těsně za mnou v levém i pravém jízdním pruhu. Když jsem zapnul blinkr, ozval se ostrý klakson. Musel jsem pokračovat přímo. Na čele mi vyrazil pot: našli mě i tady. Ulice byla liduprázdná. Obě auta začala zrychlovat, až se ocitla na mé úrovni. Byla plná mužů, kteří mlčky hleděli přímo před sebe.
+Vozy byly dva. Jednosměrnou ulicí jely těsně za mnou v levém i pravém jízdním pruhu. Když jsem zapnul blinkr, ozval se ostrý klakson. Musel jsem pokračovat přímo. Na čele mi vyrazil pot: našli mě i tady. Ulice byla liduprázdná. Obě auta začala zrychlovat, až se ocitla na mé úrovni. Byla plná mužů, kteří mlčky hleděli přímo před sebe.
 
-> Věděl jsem, že mi v příštím okamžiku zkříží cestu. Byla to scéna, kterou jsem tisíckrát a jednou viděl ve filmu i v televizi. Teď jsem v ní hrál. Před námi zahořel a rostl červený signál semaforu. Začali brzdit. Přidal jsem plyn a vletěl do křižovatky. Poslední, co jsem zahlédl, byl lesklý stín velké karoserie. Ozval se náraz, můj Renault šestnáct vyletěl do výše a současně vzplanul jako pochodeň.
+Věděl jsem, že mi v příštím okamžiku zkříží cestu. Byla to scéna, kterou jsem tisíckrát a jednou viděl ve filmu i v televizi. Teď jsem v ní hrál. Před námi zahořel a rostl červený signál semaforu. Začali brzdit. Přidal jsem plyn a vletěl do křižovatky. Poslední, co jsem zahlédl, byl lesklý stín velké karoserie. Ozval se náraz, můj Renault šestnáct vyletěl do výše a současně vzplanul jako pochodeň.
 
-> Neměl jsem na to. Brzdil jsem současně s nimi. Zastavil jsem na křižovatce mezi oběma vozy. Jejich šoféři na mě lhostejně pohlédli. Sotva naskočila zelená, odbočil jeden vlevo a druhý vpravo. Pozoroval jsem mizející stopky, ale strach mi zůstal sedět v týle. Představil jsem si ulice města, kde se můj přízrak stává skutečností. Mezi patrolujícími tanky jely vozy s českými čísly AE-40-01 a ABA-11-19. Vpředu seděl světlovlasý muž s ostrým obličejem a chladnýma očima, kterého jsem nedávno potkal v Klášterní vinárně. Neodvážel však Solženicynova Volodina, nýbrž mé kamarády.
+Neměl jsem na to. Brzdil jsem současně s nimi. Zastavil jsem na křižovatce mezi oběma vozy. Jejich šoféři na mě lhostejně pohlédli. Sotva naskočila zelená, odbočil jeden vlevo a druhý vpravo. Pozoroval jsem mizející stopky, ale strach mi zůstal sedět v týle. Představil jsem si ulice města, kde se můj přízrak stává skutečností. Mezi patrolujícími tanky jely vozy s českými čísly AE-40-01 a ABA-11-19. Vpředu seděl světlovlasý muž s ostrým obličejem a chladnýma očima, kterého jsem nedávno potkal v Klášterní vinárně. Neodvážel však Solženicynova Volodina, nýbrž mé kamarády.
 
-> Došlo mi, že už hodnou chvíli stojím před striptýzem. Nechal jsem klíček v motoru a rychle vešel. Už tam nebyli. Chtěl jsem vědět, kdy odešli. Vrchní rozuměl jen italsky. Vůbec nechápal, co po něm chci. Teprve když jsem potřetí ukázal na stůl a na své hodinky, chápavě se zasmál a vedl mě k baru. Nabídl mi volnou stoličku vedle volné slečny. Striptérka, kterou jsem před pár hodinami urazil, na mě hleděla se směsí nevole a očekávání. Sáhl jsem do kapsy, položil před ní jakousi bankovku a vyběhl ven. Ještě jsem zahlédl, jak vyběhla za mnou.
+Došlo mi, že už hodnou chvíli stojím před striptýzem. Nechal jsem klíček v motoru a rychle vešel. Už tam nebyli. Chtěl jsem vědět, kdy odešli. Vrchní rozuměl jen italsky. Vůbec nechápal, co po něm chci. Teprve když jsem potřetí ukázal na stůl a na své hodinky, chápavě se zasmál a vedl mě k baru. Nabídl mi volnou stoličku vedle volné slečny. Striptérka, kterou jsem před pár hodinami urazil, na mě hleděla se směsí nevole a očekávání. Sáhl jsem do kapsy, položil před ní jakousi bankovku a vyběhl ven. Ještě jsem zahlédl, jak vyběhla za mnou.
 
-> Jel jsem přímo k němu. Strach ustoupil vzteku. Nemýlil jsem se tedy! Jeho vůz stál před domem, ale v oknech byla přesto tma. Zaparkoval jsem za rohem, aby ho mé auto nevarovalo. Pak jsem začal zvonit. Ozval se poměrně brzy. Z domovního telefonu zazněl udýchaný hlas.
+Jel jsem přímo k němu. Strach ustoupil vzteku. Nemýlil jsem se tedy! Jeho vůz stál před domem, ale v oknech byla přesto tma. Zaparkoval jsem za rohem, aby ho mé auto nevarovalo. Pak jsem začal zvonit. Ozval se poměrně brzy. Z domovního telefonu zazněl udýchaný hlas.
 
-> – Kdo je…?
+– Kdo je…?
 
-> Nepromluvil jsem, jen mačkal znovu a znovu tlačítko zvon­ku. Pak sjížděl výtah a rozsvítilo se světlo. Odemkl a nejistě stál v otevřených dveřích. Měl na sobě jen pyžamové kalhoty a tílko.
+Nepromluvil jsem, jen mačkal znovu a znovu tlačítko zvon­ku. Pak sjížděl výtah a rozsvítilo se světlo. Odemkl a nejistě stál v otevřených dveřích. Měl na sobě jen pyžamové kalhoty a tílko.
 
-> – Kde je?? udeřil jsem na něho.
+– Kde je?? udeřil jsem na něho.
 
-> – Kdo? Já už spím…
+– Kdo? Já už spím…
 
-> Bylo mi úplně jedno, jestli je opilý anebo opilost pouze předstírá. Odstrčil jsem ho. Zavrávoral, ale chytil mě za rameno.
+Bylo mi úplně jedno, jestli je opilý anebo opilost pouze předstírá. Odstrčil jsem ho. Zavrávoral, ale chytil mě za rameno.
 
-> – Co blázníš??
+– Co blázníš??
 
-> Všechny urážky a lítosti, co jich bylo za čtyřicet let, se slily v jednu. Celá složitá škála pocitů ustoupila jedinému, starému jako lidstvo. Poslední zábrana povolila. Udeřil jsem někdejšího „brášku“ tak, že vzal ještě druhou o zeď. To už jsem běžel do schodů.
+Všechny urážky a lítosti, co jich bylo za čtyřicet let, se slily v jednu. Celá složitá škála pocitů ustoupila jedinému, starému jako lidstvo. Poslední zábrana povolila. Udeřil jsem někdejšího „brášku“ tak, že vzal ještě druhou o zeď. To už jsem běžel do schodů.
 
 * * *
 
@@ -5991,7 +5991,7 @@ _– Co myslíš, řekla, – odjel už taky tamten hnusnej pán…?_
 Pátek 23. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
 _On_: Víc vody?
 
@@ -6196,187 +6196,187 @@ Dostala nával smíchu, ale odmítla vysvětlit proč. Vypili jsme láhev vodky 
 Pátek 23. srpna 1968  
 (z deníku turisty – pokračování)
 
-> Roma
+Roma
 
-> Zamával mi a odjel k nebi výtahem jako zmoudřelý Faust moderní doby. Přesně tehdy mě napadlo rozluštění. Spatřil jsem znovu oči Čechokanaďana, který se nakláněl přes stůl a líbal jí ruce.
+Zamával mi a odjel k nebi výtahem jako zmoudřelý Faust moderní doby. Přesně tehdy mě napadlo rozluštění. Spatřil jsem znovu oči Čechokanaďana, který se nakláněl přes stůl a líbal jí ruce.
 
-> A KDYBY BYLA JAKO VY, AŤ MĚ VZBUDÍ TŘEBA VE DVĚ RÁNO!
+A KDYBY BYLA JAKO VY, AŤ MĚ VZBUDÍ TŘEBA VE DVĚ RÁNO!
 
-> Bylo čtvrt na tři. Šlápl jsem na plyn. Ozvalo se sténání brzd a uražený jekot klaksonu jakéhosi vozu. Nedohonil mě. Spolehl jsem se úplně na svůj instinkt. Vyšplhal jsem serpentinami k Villa Borghese, vybral si jednu z cest, které protínaly park, a vůbec mě nepřekvapilo, když jsem už v druhé příčné ulici spatřil neon hotelu Parco dei Principi. Byl to de-Luxe. I v tuto hodinu mi otevřel hoch v bílých rukavicích. Za skleněnou stěnou zeleně fosforeskoval na zahradě swimming-pool. Přivítaly mě dva páry zdvořile rezervovaných očí. Položil jsem na pult jeho vizitku.
+Bylo čtvrt na tři. Šlápl jsem na plyn. Ozvalo se sténání brzd a uražený jekot klaksonu jakéhosi vozu. Nedohonil mě. Spolehl jsem se úplně na svůj instinkt. Vyšplhal jsem serpentinami k Villa Borghese, vybral si jednu z cest, které protínaly park, a vůbec mě nepřekvapilo, když jsem už v druhé příčné ulici spatřil neon hotelu Parco dei Principi. Byl to de-Luxe. I v tuto hodinu mi otevřel hoch v bílých rukavicích. Za skleněnou stěnou zeleně fosforeskoval na zahradě swimming-pool. Přivítaly mě dva páry zdvořile rezervovaných očí. Položil jsem na pult jeho vizitku.
 
-> – Ano, pravil vrátný anglicky, – je doma…
+– Ano, pravil vrátný anglicky, – je doma…
 
-> – May I see him?
+– May I see him?
 
-> Místo odpovědi pohlédl významně na hodinky.
+Místo odpovědi pohlédl významně na hodinky.
 
-> – Jsem jeho přítel, řekl jsem.
+– Jsem jeho přítel, řekl jsem.
 
-> Recepční se omluvně usmál.
+Recepční se omluvně usmál.
 
-> – Má návštěvu, pane…
+– Má návštěvu, pane…
 
-> Zrychlil se mi tep.
+Zrychlil se mi tep.
 
-> – Řekl mi, že ho mohu navštívit v kteroukoli dobu!
+– Řekl mi, že ho mohu navštívit v kteroukoli dobu!
 
-> Neměl důvod nevěřit, a proto se odvážil až k samé hranici indiskrece.
+Neměl důvod nevěřit, a proto se odvážil až k samé hranici indiskrece.
 
-> – Nemyslím, že by byl právě teď rád…!
+– Nemyslím, že by byl právě teď rád…!
 
-> Uplynulo několik vteřin. Nedovedl jsem se soustředit na jedinou myšlenku. Otočil jsem se. Přímo proti mně byl otevřený výtah.
+Uplynulo několik vteřin. Nedovedl jsem se soustředit na jedinou myšlenku. Otočil jsem se. Přímo proti mně byl otevřený výtah.
 
-> Vrátný tam stačil dojít dřív než já. Stál mezi mnou a ote­vřenými dveřmi kabiny; jeho hlas byl teď spíš zdvořile varovný.
+Vrátný tam stačil dojít dřív než já. Stál mezi mnou a ote­vřenými dveřmi kabiny; jeho hlas byl teď spíš zdvořile varovný.
 
-> – Sorry, Sir!
+– Sorry, Sir!
 
-> Měl jsem už dnes v noci trénink. Uchopil jsem ho za ruku a smýkl jím za sebe. Vůbec to nečekal a zastavil se až o recepční desku. Zmáčkl jsem nejvyšší knoflík a výtah se rychle rozjel. Vystoupil jsem na dlouhé chodbě s desítkami dveří. Druhý lift dojel za několik vteřin. Vyrazili z něho oba dva, užaslí a vzteklí. Rozběhl jsem se a začal křičet její jméno. Než jsem doběhl k nejvzdálenějšímu pokoji, otevíraly se už první dveře. Boxoval a kopal jsem do prázdna před sebou tak zuřivě, že se ke mně neodvážili přiblížit. Vrátný uklidňoval hosty:
+Měl jsem už dnes v noci trénink. Uchopil jsem ho za ruku a smýkl jím za sebe. Vůbec to nečekal a zastavil se až o recepční desku. Zmáčkl jsem nejvyšší knoflík a výtah se rychle rozjel. Vystoupil jsem na dlouhé chodbě s desítkami dveří. Druhý lift dojel za několik vteřin. Vyrazili z něho oba dva, užaslí a vzteklí. Rozběhl jsem se a začal křičet její jméno. Než jsem doběhl k nejvzdálenějšímu pokoji, otevíraly se už první dveře. Boxoval a kopal jsem do prázdna před sebou tak zuřivě, že se ke mně neodvážili přiblížit. Vrátný uklidňoval hosty:
 
-> – Scusate, signori e signore, I’m calling the police!
+– Scusate, signori e signore, I’m calling the police!
 
-> Spěchal zpátky k výtahu. Tu jsem ji spatřil. Stála na prahu dveří v pánském županu, jehož rukávy několikrát ohrnula, jak to dělávala u mne. Ruce mi klesly, ale nikdo se nepohnul. Všichni se na nás mlčky dívali.
+Spěchal zpátky k výtahu. Tu jsem ji spatřil. Stála na prahu dveří v pánském županu, jehož rukávy několikrát ohrnula, jak to dělávala u mne. Ruce mi klesly, ale nikdo se nepohnul. Všichni se na nás mlčky dívali.
 
-> – Vrať se! řekl jsem ochraptěle.
+– Vrať se! řekl jsem ochraptěle.
 
-> – Ne, řekla. – Opustil jsi mě už v Perugii. Nemám vlast a nechci ani tebe. Zničili jste všecko, co vám kdy přišlo do ruky. Dělej, co chceš, třeba mě zabij. Nenávidím tě. Nenávidím vás všechny!
+– Ne, řekla. – Opustil jsi mě už v Perugii. Nemám vlast a nechci ani tebe. Zničili jste všecko, co vám kdy přišlo do ruky. Dělej, co chceš, třeba mě zabij. Nenávidím tě. Nenávidím vás všechny!
 
-> Hleděl jsem na její útlé ruce, které mizely v rukávech županu jako v bezpečném úkrytu. Pochopil jsem, že je se mnou konec, a do očí mi vstoupily slzy. Zůstaly v nich, i když přelud skončil.
+Hleděl jsem na její útlé ruce, které mizely v rukávech županu jako v bezpečném úkrytu. Pochopil jsem, že je se mnou konec, a do očí mi vstoupily slzy. Zůstaly v nich, i když přelud skončil.
 
-> Vrátný, jenž dosud stále stál ve vstupní hale mezi mnou a otevřenými dveřmi zdviže, odvrátil diskrétně hlavu. Pomalu jsem odcházel. Když jsem míjel pult, uslyšel jsem recepčního.
+Vrátný, jenž dosud stále stál ve vstupní hale mezi mnou a otevřenými dveřmi zdviže, odvrátil diskrétně hlavu. Pomalu jsem odcházel. Když jsem míjel pult, uslyšel jsem recepčního.
 
-> – Take it easy, Sir…!
+– Take it easy, Sir…!
 
-> Hoch v bílých rukavicích mi otevřel dveře vozu. Hrábl jsem do kapsy a podal mu smotek bankovek. Otevřel ústa a nevypravil ze sebe ani slovo. Zabouchl jsem dvířka sám. Hotel Parco dei Principi mizel ve zpětném zrcátku jako poslední maják pevniny, na kterou jsem se už nikdy neměl vrátit. Slzy mi tekly proudem. Plakal jsem naposled před pěti lety, za sklem motolské prosektury. Potkal jsem smrt tolikrát v životě, že jsem nikdy vážně nepomyslel na svou. Kolikrát jsem si na úzkých silnicích Čech, když se proti mně z deště a mlhy řítila světla protijedoucího vozu, říkal v duchu i nahlas.
+Hoch v bílých rukavicích mi otevřel dveře vozu. Hrábl jsem do kapsy a podal mu smotek bankovek. Otevřel ústa a nevypravil ze sebe ani slovo. Zabouchl jsem dvířka sám. Hotel Parco dei Principi mizel ve zpětném zrcátku jako poslední maják pevniny, na kterou jsem se už nikdy neměl vrátit. Slzy mi tekly proudem. Plakal jsem naposled před pěti lety, za sklem motolské prosektury. Potkal jsem smrt tolikrát v životě, že jsem nikdy vážně nepomyslel na svou. Kolikrát jsem si na úzkých silnicích Čech, když se proti mně z deště a mlhy řítila světla protijedoucího vozu, říkal v duchu i nahlas.
 
-> – Támhle přijíždí má smrt!
+– Támhle přijíždí má smrt!
 
-> Ale byla to jen hra, světla mě pokaždé minula a přede mnou byla zas volná dráha k večeři, k zápasům, k potlesku i k lásce. Musel jsem naložit vůz knížkami i plavkami, musel jsem přejet půl Evropy s vidinou moře, polibků a prázdnin, aby mě zaskočila po dni plném slunce, aby mi nastražila past v krajině vína, cypřišů a cikád, aby mě vydala pomíjivosti právě ve Věčném městě. Jel jsem jeho ulicemi, abych našel svou výpadovku ze života.
+Ale byla to jen hra, světla mě pokaždé minula a přede mnou byla zas volná dráha k večeři, k zápasům, k potlesku i k lásce. Musel jsem naložit vůz knížkami i plavkami, musel jsem přejet půl Evropy s vidinou moře, polibků a prázdnin, aby mě zaskočila po dni plném slunce, aby mi nastražila past v krajině vína, cypřišů a cikád, aby mě vydala pomíjivosti právě ve Věčném městě. Jel jsem jeho ulicemi, abych našel svou výpadovku ze života.
 
-> V těch minutách, kdy kolem mne naposled defiloval svět lidí, kdy jsem ho přes slzy opět vnímal rozmazaný a znásobený jako ta obrovská truchlivá moucha ze staré učebnice přírodopisu, jsem pochopil vše, co mi dosud unikalo. Od začátku až do konce jsem svůj život stavěl na iluzích a sebeklamu. Stvořil jsem si z fantazie neexistující svět zbožných představ a přání, který se znovu a znovu hroutil jako domek z karet, kdykoli se ho dotkla skutečnost.
+V těch minutách, kdy kolem mne naposled defiloval svět lidí, kdy jsem ho přes slzy opět vnímal rozmazaný a znásobený jako ta obrovská truchlivá moucha ze staré učebnice přírodopisu, jsem pochopil vše, co mi dosud unikalo. Od začátku až do konce jsem svůj život stavěl na iluzích a sebeklamu. Stvořil jsem si z fantazie neexistující svět zbožných představ a přání, který se znovu a znovu hroutil jako domek z karet, kdykoli se ho dotkla skutečnost.
 
-> TOUŽÍM PO TOBĚ, ALE NECHCI, ABY SES MI DALA V TÉTO NOCI LOUČENÍ A KRVE! PŘIPADALO BY MI TO JAKO OBĚŤ!
+TOUŽÍM PO TOBĚ, ALE NECHCI, ABY SES MI DALA V TÉTO NOCI LOUČENÍ A KRVE! PŘIPADALO BY MI TO JAKO OBĚŤ!
 
-> Vyskočil jsem oknem do povstání, které mě potřebovalo v noci právě tak málo jako ráno. Snad právě v tom mém zbabělém útěku byl počátek její nenasycenosti, která ji už neopustila nikdy.
+Vyskočil jsem oknem do povstání, které mě potřebovalo v noci právě tak málo jako ráno. Snad právě v tom mém zbabělém útěku byl počátek její nenasycenosti, která ji už neopustila nikdy.
 
-> REVOLUCE JSEM PŘECE I JÁ! JESTLI CHCEŠ, NAUČÍM TĚ ŽÍT!
+REVOLUCE JSEM PŘECE I JÁ! JESTLI CHCEŠ, NAUČÍM TĚ ŽÍT!
 
-> Chtěla, ale pak já jsem nezodpověděl žádnou z jejích logických otázek, protože jsem odpovědi neznal sám. Musela opustit domov a obeplout zeměkouli, aby jí to řekl neznámý doktor z Kuby.
+Chtěla, ale pak já jsem nezodpověděl žádnou z jejích logických otázek, protože jsem odpovědi neznal sám. Musela opustit domov a obeplout zeměkouli, aby jí to řekl neznámý doktor z Kuby.
 
-> NA TAKOVÉ LODI NENÍ NIKOMU SMUTNO, MÁ DRAHÁ! NA TAKOVÉ LODI NENÍ NIKDO SÁM!
+NA TAKOVÉ LODI NENÍ NIKOMU SMUTNO, MÁ DRAHÁ! NA TAKOVÉ LODI NENÍ NIKDO SÁM!
 
-> Ale neuměl jsem pak od ní zahnat strach ani samotu, třebaže jsem si ji přivedl pod svou střechu. Její spor s mou mámou o místo na plotně a pořádek v příborníku mi připadal příliš směšný proti velkolepé bitvě tříd a ras. Vzdala se velkého bytu i dobrého jména pro malou jistotu, která patřila pouze jí.
+Ale neuměl jsem pak od ní zahnat strach ani samotu, třebaže jsem si ji přivedl pod svou střechu. Její spor s mou mámou o místo na plotně a pořádek v příborníku mi připadal příliš směšný proti velkolepé bitvě tříd a ras. Vzdala se velkého bytu i dobrého jména pro malou jistotu, která patřila pouze jí.
 
-> AŽ VYROSTEŠ, MŮJ SYNU, BUDU TI O NICH VYPRÁVĚT UPROSTŘED KVETOUCÍHO JARA, V NĚMŽ SE ČLOVĚK ČLO­VĚKU STANE BRATREM!
+AŽ VYROSTEŠ, MŮJ SYNU, BUDU TI O NICH VYPRÁVĚT UPROSTŘED KVETOUCÍHO JARA, V NĚMŽ SE ČLOVĚK ČLO­VĚKU STANE BRATREM!
 
-> Teď neklidně spí s vlajkou, s níž celý den statečně protestoval proti stejným tankům, kterým jsem připsal svou první uveřejněnou báseň.
+Teď neklidně spí s vlajkou, s níž celý den statečně protestoval proti stejným tankům, kterým jsem připsal svou první uveřejněnou báseň.
 
-> ALE NĚCO JE SNAD PRO VÁS V ŽIVOTĚ HLAVNÍ?
+ALE NĚCO JE SNAD PRO VÁS V ŽIVOTĚ HLAVNÍ?
 
-> Šťastná chci být!
+Šťastná chci být!
 
-> Je to skutečně tak sobecké přání, jakým se mi jevilo být? Anebo odvaha vyslovit otevřeně krédo lidské existence? Proboha, vždyť je to klíč ke všemu! Jak může zlepšit svět člověk, jenž nezlepšil jediný z osudů, kterých se dotýkal?
+Je to skutečně tak sobecké přání, jakým se mi jevilo být? Anebo odvaha vyslovit otevřeně krédo lidské existence? Proboha, vždyť je to klíč ke všemu! Jak může zlepšit svět člověk, jenž nezlepšil jediný z osudů, kterých se dotýkal?
 
-> Hádala se se mnou, vyčítala mi, ale její objetí na mě oddaně čekalo každou noc, aby mě uchránilo před zlými sny…
+Hádala se se mnou, vyčítala mi, ale její objetí na mě oddaně čekalo každou noc, aby mě uchránilo před zlými sny…
 
-> Projížděl jsem křižovatky a hledal tu krásnou dopravní značku z dětské hry.
+Projížděl jsem křižovatky a hledal tu krásnou dopravní značku z dětské hry.
 
-> VRAŤ SE KE STARTU A ZAČNI ZNOVA!
+VRAŤ SE KE STARTU A ZAČNI ZNOVA!
 
-> Ale bylo pozdě hledat leopardí kostru v bílých snězích Kilimandžára. Nebyl jsem Jan Hus, abych se dokázal dobrovolně odevzdat muži s chladnýma očima, který čekal u hraničního sloupu, ale nebyl jsem ani Komenský, abych byl schopen dovršit dílo i život u dobrých mecenášů z University of Iowa, stát Iowa. Nemohl jsem se utéci ani k Bohu, jejž jsem opustil, a Marxe, kterého jsem hledal, jsem nenašel. Nezbývalo mi než pokračovat směr Via Appia, abych mohl sešlápnout plyn, položit hlavu na volant a spát.
+Ale bylo pozdě hledat leopardí kostru v bílých snězích Kilimandžára. Nebyl jsem Jan Hus, abych se dokázal dobrovolně odevzdat muži s chladnýma očima, který čekal u hraničního sloupu, ale nebyl jsem ani Komenský, abych byl schopen dovršit dílo i život u dobrých mecenášů z University of Iowa, stát Iowa. Nemohl jsem se utéci ani k Bohu, jejž jsem opustil, a Marxe, kterého jsem hledal, jsem nenašel. Nezbývalo mi než pokračovat směr Via Appia, abych mohl sešlápnout plyn, položit hlavu na volant a spát.
 
-> Vůz s blikajícím světlem, který jel už chvíli po mém boku, zrychlil, předjel mě a riskantně zatarasil mou dráhu. Byl jsem příliš unaven, abych se znovu vyděsil. Pouze jsem reagoval o něco pomaleji a stačil zastavit jen tak, že jsem lehce narazil číslem do jejich stupátka.
+Vůz s blikajícím světlem, který jel už chvíli po mém boku, zrychlil, předjel mě a riskantně zatarasil mou dráhu. Byl jsem příliš unaven, abych se znovu vyděsil. Pouze jsem reagoval o něco pomaleji a stačil zastavit jen tak, že jsem lehce narazil číslem do jejich stupátka.
 
-> – I suoi documenti, per favore!
+– I suoi documenti, per favore!
 
-> Druhý už adjustoval přístroj na měření hladiny alkoholu. Vytáhl jsem současně pas i kapesník. Bylo mi jasné, že jsem mohl spáchat ne jeden, ale deset dopravních přestupků. Rychle jsem si utíral tvář. Kapesník byl okamžitě mokrý.
+Druhý už adjustoval přístroj na měření hladiny alkoholu. Vytáhl jsem současně pas i kapesník. Bylo mi jasné, že jsem mohl spáchat ne jeden, ale deset dopravních přestupků. Rychle jsem si utíral tvář. Kapesník byl okamžitě mokrý.
 
-> – Viene dalla Cecoslovacchia?
+– Viene dalla Cecoslovacchia?
 
-> – Sí…
+– Sí…
 
-> – Perché la sua macchina non porta la targa del paese?
+– Perché la sua macchina non porta la targa del paese?
 
-> Pochopil jsem, když jsem s ním obešel vůz. Někdo si zřejmě odšrouboval mou poznávací značku jako suvenýr. Pokrčil jsem bezradně rameny. Ale z jejich hlasu se úplně vytratila úřední strohost.
+Pochopil jsem, když jsem s ním obešel vůz. Někdo si zřejmě odšrouboval mou poznávací značku jako suvenýr. Pokrčil jsem bezradně rameny. Ale z jejich hlasu se úplně vytratila úřední strohost.
 
-> – Non si sente bene?
+– Non si sente bene?
 
-> Přitiskl si tázavě ruce na spánky, jako by ho bolela hlava.
+Přitiskl si tázavě ruce na spánky, jako by ho bolela hlava.
 
-> – No…, řekl jsem; slyšel jsem sám, že to zní jako z hrobu.
+– No…, řekl jsem; slyšel jsem sám, že to zní jako z hrobu.
 
-> Prohodili pár slov. Pak se velitel hlídky zeptal znovu:
+Prohodili pár slov. Pak se velitel hlídky zeptal znovu:
 
-> – Dove abita?
+– Dove abita?
 
-> Schopnost uhadovat smysl vět podle latiny mé opustila.
+Schopnost uhadovat smysl vět podle latiny mé opustila.
 
-> – Non capisco…
+– Non capisco…
 
-> – L’albergo?
+– L’albergo?
 
-> To jsem znal. Řekl jsem jméno hotelu. Posadil se s omluvou za volant mého renaulta a otevřel mi protější dveře. Policejní fiat jel před námi. Dostavilo se úplné vyčerpání. Položil jsem hlavu na opěradlo a zavřel oči. Pomohl mi pak z vozu, zkontroloval zámky a podal mi klíčky.
+To jsem znal. Řekl jsem jméno hotelu. Posadil se s omluvou za volant mého renaulta a otevřel mi protější dveře. Policejní fiat jel před námi. Dostavilo se úplné vyčerpání. Položil jsem hlavu na opěradlo a zavřel oči. Pomohl mi pak z vozu, zkontroloval zámky a podal mi klíčky.
 
-> – Grazie, řekl jsem. Na víc jsem neměl.
+– Grazie, řekl jsem. Na víc jsem neměl.
 
-> – Non c’è di che. Buona notte. Tanti saluti alla Cecoslovacchia libera!
+– Non c’è di che. Buona notte. Tanti saluti alla Cecoslovacchia libera!
 
-> Naklonil se ke mně, jako by to neměl slyšet kolega.
+Naklonil se ke mně, jako by to neměl slyšet kolega.
 
-> – Sono socialista!
+– Sono socialista!
 
-> Hotel byl otevřený i v noci. Vrátnice prázdná. Marně jsem hledal klíč, až jsem si vzpomněl, že jsem ho nechal nahoře ve dveřích. Zatoužil jsem, abych našel pokoj úplně vykradený. Bál jsem se spatřit znovu její věci. Desítky předmětů, které jsem nenáviděl, protože po léta zavalovaly mé stoly, postele i židle, na mě teď čekaly jako miny, v nichž při pouhém pohledu exploduje moje náročná, ale životodárná minulost s ní. Spoléhal jsem jen na svou únavu.
+Hotel byl otevřený i v noci. Vrátnice prázdná. Marně jsem hledal klíč, až jsem si vzpomněl, že jsem ho nechal nahoře ve dveřích. Zatoužil jsem, abych našel pokoj úplně vykradený. Bál jsem se spatřit znovu její věci. Desítky předmětů, které jsem nenáviděl, protože po léta zavalovaly mé stoly, postele i židle, na mě teď čekaly jako miny, v nichž při pouhém pohledu exploduje moje náročná, ale životodárná minulost s ní. Spoléhal jsem jen na svou únavu.
 
-> Pod netěsnícími dveřmi vytékalo světlo, které jsem zapomněl zhasnout. Otevřel jsem a zůstal v ustrnutí stát. Zdálo se mi, že místo lupiče navštívil pokoj šílenec. Na oknech, na lampě, na pelestích, na umyvadle, na židlích i na skříni visely moje košile, trika, spodky, ponožky a kapesníky. Podlahu pokrývaly knihy, časopisy, zápisníky, fotografie a desítky kladívkových čtvrtek, na nichž byla nakreslena mnoha způsoby a v nejrůznějších velikostech jediná tvář. Moje. Uprostřed té spouště leželo v klubíčku polonahé ženské tělo. Vrhl jsem se k němu. Ale ještě dřív otevřela oči a vykřikla. Přitáhla mě k sobě, bloudila rukama po mé hlavě, ramenou, bocích a opakovala znovu a znovu teplé slovo z dobrých časů.
+Pod netěsnícími dveřmi vytékalo světlo, které jsem zapomněl zhasnout. Otevřel jsem a zůstal v ustrnutí stát. Zdálo se mi, že místo lupiče navštívil pokoj šílenec. Na oknech, na lampě, na pelestích, na umyvadle, na židlích i na skříni visely moje košile, trika, spodky, ponožky a kapesníky. Podlahu pokrývaly knihy, časopisy, zápisníky, fotografie a desítky kladívkových čtvrtek, na nichž byla nakreslena mnoha způsoby a v nejrůznějších velikostech jediná tvář. Moje. Uprostřed té spouště leželo v klubíčku polonahé ženské tělo. Vrhl jsem se k němu. Ale ještě dřív otevřela oči a vykřikla. Přitáhla mě k sobě, bloudila rukama po mé hlavě, ramenou, bocích a opakovala znovu a znovu teplé slovo z dobrých časů.
 
-> – Milej, milej, milej, milej, milej…
+– Milej, milej, milej, milej, milej…
 
-> Ze slov přerývaných vzlyky jsem pochopil, že došla pěšky k hotelu a vstoupila do restaurace dole, aby nám koupila litr frascati, kterým se mnou chtěla zapít všechny ošklivosti světa. Tu mě viděla, jak skáču do vozu a řítím se pryč. Běžela za mnou s lahví až na roh ulice a křičela, že se i v Římě otvírala okna.
+Ze slov přerývaných vzlyky jsem pochopil, že došla pěšky k hotelu a vstoupila do restaurace dole, aby nám koupila litr frascati, kterým se mnou chtěla zapít všechny ošklivosti světa. Tu mě viděla, jak skáču do vozu a řítím se pryč. Běžela za mnou s lahví až na roh ulice a křičela, že se i v Římě otvírala okna.
 
-> – Myslela jsem, že jedeš domů a mě’s tu nechal!
+– Myslela jsem, že jedeš domů a mě’s tu nechal!
 
-> Přišlo mi to teď úplně absurdní.
+Přišlo mi to teď úplně absurdní.
 
-> Zůstala s lahví vína a plnými kufry, které ztratily smysl, sama v tom ohavném pokoji, v cizím městě, bez telefonních čísel a bez adres.
+Zůstala s lahví vína a plnými kufry, které ztratily smysl, sama v tom ohavném pokoji, v cizím městě, bez telefonních čísel a bez adres.
 
-> – Mělas tu přece jeho!
+– Mělas tu přece jeho!
 
-> – Ty blázne, ty hloupej, zlej, krutej, mizernej blázne, ty můj miláčku malej, ty sis myslel, že tě v tom nechám??
+– Ty blázne, ty hloupej, zlej, krutej, mizernej blázne, ty můj miláčku malej, ty sis myslel, že tě v tom nechám??
 
-> Vyprávěl jsem jí útržkovitě celou zmatenou odyseu své noci až po vodníka a ona střídavě propukala v slzy i smích.
+Vyprávěl jsem jí útržkovitě celou zmatenou odyseu své noci až po vodníka a ona střídavě propukala v slzy i smích.
 
-> – Řekli mi, že má v pokoji návštěvu a že by nebyl rád…!
+– Řekli mi, že má v pokoji návštěvu a že by nebyl rád…!
 
-> – Asi konečně našel českou ženskou! Ty ji máš, tak buď rád!
+– Asi konečně našel českou ženskou! Ty ji máš, tak buď rád!
 
-> – Já jsem…
+– Já jsem…
 
-> – A opakuj si s Čapkem: vždycky zbývá nějaká malá mož­nost, ta zbyla i při potopě světa!
+– A opakuj si s Čapkem: vždycky zbývá nějaká malá mož­nost, ta zbyla i při potopě světa!
 
-> Z paměti vyplynul známý text a já vděčně přijal svůj part.
+Z paměti vyplynul známý text a já vděčně přijal svůj part.
 
-> – Jaká?
+– Jaká?
 
-> – Že se mloci poperou mezi sebou a vyhynou!
+– Že se mloci poperou mezi sebou a vyhynou!
 
-> – A potom?
+– A potom?
 
-> – Že po nich zůstane zas jen ten starý fosilní otisk Andriase Scheuchzeriho!
+– Že po nich zůstane zas jen ten starý fosilní otisk Andriase Scheuchzeriho!
 
-> – A potom?
+– A potom?
 
-> – Že se pár lidí uchová na lodích anebo znovu povstanou z opice a potom objeví oheň a potom napíšou legendu o potopě světa a potom vytvoří možná novou civilizaci.
+– Že se pár lidí uchová na lodích anebo znovu povstanou z opice a potom objeví oheň a potom napíšou legendu o potopě světa a potom vytvoří možná novou civilizaci.
 
-> – A potom? zeptal jsem se a odpověděl za ni, – dál už to nevíš…!
+– A potom? zeptal jsem se a odpověděl za ni, – dál už to nevíš…!
 
-> – Potom je daleko, řekla. – Napřed se mnou musíš spát…, chci mít dítě!
+– Potom je daleko, řekla. – Napřed se mnou musíš spát…, chci mít dítě!
 
-> Tady začal výstup, který jsme spolu hráli už mnohokrát. Po narážce měla následovat moje replika, že nejsem kočka, abych měl několik životů, že je mi čtyřicet, že nechci mít děti stejně staré jako vnuky a že jsem ji nikdy nenutil, aby svůj život spojila s mým. Místo toho jsem ji vzal do náruče a nesl přes trosky našich věcí i osudů až tam daleko, kde se počíná lidská nesmrtelnost. Věděl jsem, že kráčím po stejné stezce jako statisíce mých krajanů ztracených dnešní noci v Labyrintu světa, kteří rovněž hledají Hlubinu bezpečnosti, kde by přečkali bouři a odkud by znovu povstal jak fénix náš těžce zkoušený národ.
+Tady začal výstup, který jsme spolu hráli už mnohokrát. Po narážce měla následovat moje replika, že nejsem kočka, abych měl několik životů, že je mi čtyřicet, že nechci mít děti stejně staré jako vnuky a že jsem ji nikdy nenutil, aby svůj život spojila s mým. Místo toho jsem ji vzal do náruče a nesl přes trosky našich věcí i osudů až tam daleko, kde se počíná lidská nesmrtelnost. Věděl jsem, že kráčím po stejné stezce jako statisíce mých krajanů ztracených dnešní noci v Labyrintu světa, kteří rovněž hledají Hlubinu bezpečnosti, kde by přečkali bouři a odkud by znovu povstal jak fénix náš těžce zkoušený národ.
 
-> A aj, uslyšel jsem Hlas, jenž mluvil k Poutníkovi:
+A aj, uslyšel jsem Hlas, jenž mluvil k Poutníkovi:
 
-> NAVRAŤ SE, ODKUDS VYŠEL, DO DOMU SRDCE SVÉHO, A ZAVŘI PO SOBĚ DVÉŘE!
+NAVRAŤ SE, ODKUDS VYŠEL, DO DOMU SRDCE SVÉHO, A ZAVŘI PO SOBĚ DVÉŘE!
 
-> (konec příběhu na pokračování)
+(konec příběhu na pokračování)
 
 * * *
 
@@ -6743,94 +6743,94 @@ _Zde je neupravený text:_
 
 <section>
 
-> _„Vážený pane Kohout,_
+_„Vážený pane Kohout,_
 
-> _přikládám k dopisu výkaz práce za r. 1968. Letošní starý rok končí. Musíme o něm říci, jaký po celou dobu byl. Zima byla celkem mírná. Jaro přišlo hodně ranně. Počátkem března přilétly již špačkové a jiné ptactvo stěhovavé. Vracelo se o 14 dní dříve než loňský rok. V březnu se sela kořenová zelenina, a ještě jiné ranné druhy zeleniny. Země na polí byla zralá a schopná k výsevu jarního obilí. Počátkem t. m. rozkvétaly květy farzicií (což nebývá za více let.) Počátkem dubna začaly rozkvétat ranné třešně. A další pozdní za nimi následovaly. Ke konci dubna kvetly slívy, blumi, lingre, švestky a dále za sebou jabloně a hrušně. Okrasné křoviny si také pospíšily k rozkvětu, při tak ranném jaru. Bylo vidět na všem ranném, že se ukazuje lepší a krásnější než pozdní. Ke konci květnu, ranná zelenina dorůstala a mohla se používat k jídlu. Třešně ranné také ke konci květnu byly zralé. Obilí na polí, na vzrůst bylo také pěkné. Žita v půli května metaly; (což jindy nebylo.) Včeličky měly také radosť, s toho krásného počasí a pilně pracovaly, opilovaly a nosily med do domečkůch. I to mělo velký hospodářský užitek. Do konce června, polorané rostliny dorůstaly, i veškeré obiloviny. V červenci nastává doba zrání, u obilí a u některých druhů ranného ovoce. Od počátku března, do konce července, bylo počasí na vlahů a teplo dobré. Pokračování na listu II_
+_přikládám k dopisu výkaz práce za r. 1968. Letošní starý rok končí. Musíme o něm říci, jaký po celou dobu byl. Zima byla celkem mírná. Jaro přišlo hodně ranně. Počátkem března přilétly již špačkové a jiné ptactvo stěhovavé. Vracelo se o 14 dní dříve než loňský rok. V březnu se sela kořenová zelenina, a ještě jiné ranné druhy zeleniny. Země na polí byla zralá a schopná k výsevu jarního obilí. Počátkem t. m. rozkvétaly květy farzicií (což nebývá za více let.) Počátkem dubna začaly rozkvétat ranné třešně. A další pozdní za nimi následovaly. Ke konci dubna kvetly slívy, blumi, lingre, švestky a dále za sebou jabloně a hrušně. Okrasné křoviny si také pospíšily k rozkvětu, při tak ranném jaru. Bylo vidět na všem ranném, že se ukazuje lepší a krásnější než pozdní. Ke konci květnu, ranná zelenina dorůstala a mohla se používat k jídlu. Třešně ranné také ke konci květnu byly zralé. Obilí na polí, na vzrůst bylo také pěkné. Žita v půli května metaly; (což jindy nebylo.) Včeličky měly také radosť, s toho krásného počasí a pilně pracovaly, opilovaly a nosily med do domečkůch. I to mělo velký hospodářský užitek. Do konce června, polorané rostliny dorůstaly, i veškeré obiloviny. V červenci nastává doba zrání, u obilí a u některých druhů ranného ovoce. Od počátku března, do konce července, bylo počasí na vlahů a teplo dobré. Pokračování na listu II_
 
-> _II_
+_II_
 
-> _Proto se všechno urodilo, jak u obilí, tak u ovoce a zeleniny. Do téhle doby, zasloužila tato hojná úroda, aby jsme za ní poděkovaly, vyšší moci. Po lednovém obrození a 20letém nevolnictví, se nám trochu lepší dýchalo, a žilo. I Vy pane Kohout, v létě ste byl na Sázavě, více než jiná léta. Lepší to něco bylo, že?_
+_Proto se všechno urodilo, jak u obilí, tak u ovoce a zeleniny. Do téhle doby, zasloužila tato hojná úroda, aby jsme za ní poděkovaly, vyšší moci. Po lednovém obrození a 20letém nevolnictví, se nám trochu lepší dýchalo, a žilo. I Vy pane Kohout, v létě ste byl na Sázavě, více než jiná léta. Lepší to něco bylo, že?_
 
-> _Přichází srpen: velkého zklamání a hrůzy! Z čeho jsme měly velkou radosť, proměňuje se ve strach a tmu. Všecko se zastavilo a čekalo se co bude dál. Těmito hrůzami v celém našem hospodářství se práce a výroba spomalila, nejistotou že zní žádný užitek nebude. Výsledek je toho že hodně potřeb nejni a nemuže se koupit. Uhlýho je také velký nedostatek. I v zemědělství těmito událostmi se práce hodně opozdila. Nebýti delšího podzimu, bez sněhu a mrazu, tak se práce na poli neudělala._
+_Přichází srpen: velkého zklamání a hrůzy! Z čeho jsme měly velkou radosť, proměňuje se ve strach a tmu. Všecko se zastavilo a čekalo se co bude dál. Těmito hrůzami v celém našem hospodářství se práce a výroba spomalila, nejistotou že zní žádný užitek nebude. Výsledek je toho že hodně potřeb nejni a nemuže se koupit. Uhlýho je také velký nedostatek. I v zemědělství těmito událostmi se práce hodně opozdila. Nebýti delšího podzimu, bez sněhu a mrazu, tak se práce na poli neudělala._
 
-> _Ve vaší zahradě, práci každého měsíce dělám, dál._
+_Ve vaší zahradě, práci každého měsíce dělám, dál._
 
-> _Písmo je neúhledné, mám těžkou ruku a trochu mi chromne. Musíte prominout._
+_Písmo je neúhledné, mám těžkou ruku a trochu mi chromne. Musíte prominout._
 
-> _Bedřich Kulhánek, rolník,  
-> Xaverov, p. Sázava  
-> 27/XII roku 1968“_
+_Bedřich Kulhánek, rolník,  
+Xaverov, p. Sázava  
+27/XII roku 1968“_
 
 * * *
 
 Úterý 20. srpna 1968  
 (z deníku turisty – začátek příběhu)
 
-> San Marino
+San Marino
 
-> V dlouhé rovině, téměř splývající s mořem, se objevila poštovní známka; byla na ní skála se třemi bílými hrady. Zdálo se mi, že jedu znovu vstříc svému dětství, do něhož zářila v albu mého otce.
+V dlouhé rovině, téměř splývající s mořem, se objevila poštovní známka; byla na ní skála se třemi bílými hrady. Zdálo se mi, že jedu znovu vstříc svému dětství, do něhož zářila v albu mého otce.
 
-> – Rocca Guaita, Rocca della Fratta, Rocca Montale…
+– Rocca Guaita, Rocca della Fratta, Rocca Montale…
 
-> – Co si to zpíváš? zeptala se.
+– Co si to zpíváš? zeptala se.
 
-> – Hymnu, již jsem si složil, když jsem ještě chtěl být Gari­baldim…
+– Hymnu, již jsem si složil, když jsem ještě chtěl být Gari­baldim…
 
-> – To mi uniklo. Myslela jsem, že jsi chtěl být pouze Cyranem z Bergeraku, evangelickým vikářem, prvním milovníkem, rudým komisařem a konečně národním mučedníkem!
+– To mi uniklo. Myslela jsem, že jsi chtěl být pouze Cyranem z Bergeraku, evangelickým vikářem, prvním milovníkem, rudým komisařem a konečně národním mučedníkem!
 
-> – Garibaldi byl dávno dřív, pravil jsem shovívavě. – A ještě před ním hasič, Michal Strogoff a pan Chroust.
+– Garibaldi byl dávno dřív, pravil jsem shovívavě. – A ještě před ním hasič, Michal Strogoff a pan Chroust.
 
-> – Kdo to, prosím tě, je…?
+– Kdo to, prosím tě, je…?
 
-> – To byl papírník v naší ulici.
+– To byl papírník v naší ulici.
 
-> – Panebože, teď konečně chápu, proč si v každém obchodním domě hodiny prohlížíš ořezávátka a gumy!
+– Panebože, teď konečně chápu, proč si v každém obchodním domě hodiny prohlížíš ořezávátka a gumy!
 
-> – Ano! zvolal jsem emfaticky, – a proto jsem vždy hořce litoval, že nejsem dělnicko-rolnický synek z NDR, kde drobné soukromé podnikání utěšeně vzkvétá. Dopřeje-li nám nyní pánbůh a soudruh Šik téhož, najmu si malý papírnický krámek na výhodném místě a budu u cíle své pouti, tralalalá!
+– Ano! zvolal jsem emfaticky, – a proto jsem vždy hořce litoval, že nejsem dělnicko-rolnický synek z NDR, kde drobné soukromé podnikání utěšeně vzkvétá. Dopřeje-li nám nyní pánbůh a soudruh Šik téhož, najmu si malý papírnický krámek na výhodném místě a budu u cíle své pouti, tralalalá!
 
-> Opřela se o dveře vozu a pozorovala mě s údivem. Slunce zapadalo přesně nad horou. Tři černé hrady vypadaly teď jako kulisa mého loutkového divadélka. Uslyšel jsem maminčin poctivý ruční zvonec, ohlašující počátek představení. Na příští křižovatce jsem odbočil vpravo. Div mi nezačala točit volantem.
+Opřela se o dveře vozu a pozorovala mě s údivem. Slunce zapadalo přesně nad horou. Tři černé hrady vypadaly teď jako kulisa mého loutkového divadélka. Uslyšel jsem maminčin poctivý ruční zvonec, ohlašující počátek představení. Na příští křižovatce jsem odbočil vpravo. Div mi nezačala točit volantem.
 
-> – Vlevo! Rimini bylo vlevo!
+– Vlevo! Rimini bylo vlevo!
 
-> – Vím to. Ach, já již vím vše!
+– Vím to. Ach, já již vím vše!
 
-> – Jedeme přece k moři!
+– Jedeme přece k moři!
 
-> – Zajisté, ale až zítra. Nyní si zastolujeme.
+– Zajisté, ale až zítra. Nyní si zastolujeme.
 
-> – To můžeme v Rimini taky!
+– To můžeme v Rimini taky!
 
-> – Nikoli, mé dítě, neboť noc nablízku a právě teď, v hodině mezi psem a vlkem, bloudí skrze Rimini dle našeho průvodce duch inteligentního, leč krutého kondotiéra Malatesty, jenž byl svou první manželku probodl, druhou otrávil a třetí zardousil, aby mohl konečně pojmout za choť svou milovanou metresu Isottu. Naproti tomu San Marino jest vlastí vlídných obchodníků a pastevců, kteří odedávna poskytují azyl štvancům. Byli to ostatně oni, kdo již v patnáctém století porazili Malatestu z Rimini na hlavu, ježto se na jeho zvěrstva nemohli shora déle dívat.
+– Nikoli, mé dítě, neboť noc nablízku a právě teď, v hodině mezi psem a vlkem, bloudí skrze Rimini dle našeho průvodce duch inteligentního, leč krutého kondotiéra Malatesty, jenž byl svou první manželku probodl, druhou otrávil a třetí zardousil, aby mohl konečně pojmout za choť svou milovanou metresu Isottu. Naproti tomu San Marino jest vlastí vlídných obchodníků a pastevců, kteří odedávna poskytují azyl štvancům. Byli to ostatně oni, kdo již v patnáctém století porazili Malatestu z Rimini na hlavu, ježto se na jeho zvěrstva nemohli shora déle dívat.
 
-> – Ale právě tvůj příběh naznačuje, že pro mě je Rimini to správné místo, kde by ses konečně mohl vyjádřit!
+– Ale právě tvůj příběh naznačuje, že pro mě je Rimini to správné místo, kde by ses konečně mohl vyjádřit!
 
-> – Podle pořadí mých svateb bys přišla k zardoušení, má drahá.
+– Podle pořadí mých svateb bys přišla k zardoušení, má drahá.
 
-> – Ale třeba bych se před tím stačila vykoupat!
+– Ale třeba bych se před tím stačila vykoupat!
 
-> – Lituji! Podle tvých rozkazů jsem projel stovky kilometrů poledním směrem, dobyl jsem pro tebe nudný Linec, zasněný Salcburk, pyšný Grossglockner i Benátky, perlu moří, avšak nyní musíš připustit, abych skutečný začátek prázdnin vzal do svých zkušených rukou. Mám pro dnešek řadu plánů, jež ti vyjevím postupně, s rafinovaností až ďábelskou!
+– Lituji! Podle tvých rozkazů jsem projel stovky kilometrů poledním směrem, dobyl jsem pro tebe nudný Linec, zasněný Salcburk, pyšný Grossglockner i Benátky, perlu moří, avšak nyní musíš připustit, abych skutečný začátek prázdnin vzal do svých zkušených rukou. Mám pro dnešek řadu plánů, jež ti vyjevím postupně, s rafinovaností až ďábelskou!
 
-> Rozesmála se.
+Rozesmála se.
 
-> – Ty začínáš být dokonce zábavný…!
+– Ty začínáš být dokonce zábavný…!
 
-> – Od zítřka budu k sežrání! prohlásil jsem přesvědčeně.
+– Od zítřka budu k sežrání! prohlásil jsem přesvědčeně.
 
-> – Proč právě od zítřka?
+– Proč právě od zítřka?
 
-> – Protože dnes, má lásko, zahajuji s měsíčním odkladem, který zavinily nejasnosti uvnitř tábora míru a socialismu, druhý poločas svého záviděníhodného života. Ač tak mlád, mohu již s čistým svědomím ukončiti svou zástupnou kariéru politického amatéra a předat starost o blaho obce tvému nádhernému pokolení. Hodlám se věnovati vínu, tanci, zpěvu, chovu drsnosrstých jezevčíků a psaní Pamětí, dříve než je zapomenu. Pročež mi dovol, abych s tebou dnes večer ještě jednou a pořádně oslavil svou čtyřicítku!
+– Protože dnes, má lásko, zahajuji s měsíčním odkladem, který zavinily nejasnosti uvnitř tábora míru a socialismu, druhý poločas svého záviděníhodného života. Ač tak mlád, mohu již s čistým svědomím ukončiti svou zástupnou kariéru politického amatéra a předat starost o blaho obce tvému nádhernému pokolení. Hodlám se věnovati vínu, tanci, zpěvu, chovu drsnosrstých jezevčíků a psaní Pamětí, dříve než je zapomenu. Pročež mi dovol, abych s tebou dnes večer ještě jednou a pořádně oslavil svou čtyřicítku!
 
-> Objevila se kovová konstrukce s nápisem, jenž nás vítal v Republice San Marino. Zastavil jsem u první dobře vyhlížející taverny.
+Objevila se kovová konstrukce s nápisem, jenž nás vítal v Republice San Marino. Zastavil jsem u první dobře vyhlížející taverny.
 
-> – Proč nejedem rovnou nahoru? zeptala se, hledíc výše, kam se krkolomně vinula strada panoramica.
+– Proč nejedem rovnou nahoru? zeptala se, hledíc výše, kam se krkolomně vinula strada panoramica.
 
-> – Štěstí jest jako ženy, pravil jsem hluboce filozoficky, vcházeje na terasu, – k čemu se na ně vrhat střemhlav, můžeme-li je zlézat od úpatí, abychom tak prodloužili svou slast až k nepříčetnosti. Hej, hochu, oslovil jsem číšníka česky, – královna, kterou doprovázím, je věru hodna tvého úsilí, jež bude navíc po zásluze odměněno. Dones nám všechny své spaghetti milanese i bolognese, vystav na odiv své ravioli i své caneloni, vylov pro nás všechny frutti di mare a k tomu dodej vinum et panem. Hry si už uspořádáme sami!
+– Štěstí jest jako ženy, pravil jsem hluboce filozoficky, vcházeje na terasu, – k čemu se na ně vrhat střemhlav, můžeme-li je zlézat od úpatí, abychom tak prodloužili svou slast až k nepříčetnosti. Hej, hochu, oslovil jsem číšníka česky, – královna, kterou doprovázím, je věru hodna tvého úsilí, jež bude navíc po zásluze odměněno. Dones nám všechny své spaghetti milanese i bolognese, vystav na odiv své ravioli i své caneloni, vylov pro nás všechny frutti di mare a k tomu dodej vinum et panem. Hry si už uspořádáme sami!
 
-> Pochopil, že je svědkem mimořádné události, a byl zde s karafou na obrtlíku.
+Pochopil, že je svědkem mimořádné události, a byl zde s karafou na obrtlíku.
 
-> – Děkuji ti, žes byla ke mně tak trpěliva, pravil jsem jí. – Za to ti nyní mohu odevzdat vlast – zemský ráj to na pohled, kde opět skví se jara květ, jak předpisuje naše státní hymna. Po večeři pojedem nahoru do kasina, kde rozbijeme bank. Za výhru si koupíme hůl a budem s ní radostně třískat do rolet. Závěrem objednám apartmá s nejkrásnější vyhlídkou a ráno ti položím k nohám celý jih, od Apenin až k Dalmácii. Neboť věz, že jsem konečně volný a – jaks mě to vyučila – šťastný!
+– Děkuji ti, žes byla ke mně tak trpěliva, pravil jsem jí. – Za to ti nyní mohu odevzdat vlast – zemský ráj to na pohled, kde opět skví se jara květ, jak předpisuje naše státní hymna. Po večeři pojedem nahoru do kasina, kde rozbijeme bank. Za výhru si koupíme hůl a budem s ní radostně třískat do rolet. Závěrem objednám apartmá s nejkrásnější vyhlídkou a ráno ti položím k nohám celý jih, od Apenin až k Dalmácii. Neboť věz, že jsem konečně volný a – jaks mě to vyučila – šťastný!
 
-> (pokračování na začátku knihy)
+(pokračování na začátku knihy)
 
 > Takto při této příležitosti hledím na svou minulost,  
 > tedy i na svůj vstup do KSČ v roce 1946. Ten považuju za pochopitelný generačně i sociálně, a jako by byl řízen nějakou silou, jež možná věděla, k čemu to má být dobré.
