@@ -20,7 +20,7 @@ readingOrder:
   - z_deniku_kontrarevolucionare_007.html
   - z_deniku_kontrarevolucionare_008.html
   - z_deniku_kontrarevolucionare_009.html
-  - colophon.html
+  - about.html
 tocBase:
   - id: section-1
     children:
