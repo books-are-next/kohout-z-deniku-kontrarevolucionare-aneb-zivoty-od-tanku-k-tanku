@@ -66,7 +66,7 @@
             "filename": "z_deniku_kontrarevolucionare_003.md",
             "xhtml": "z_deniku_kontrarevolucionare_003.xhtml",
             "id": 2,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": false,
             "hungry": false,
@@ -78,7 +78,7 @@
             "filename": "z_deniku_kontrarevolucionare_004.md",
             "xhtml": "z_deniku_kontrarevolucionare_004.xhtml",
             "id": 3,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": false,
             "hungry": false,
@@ -155,7 +155,7 @@
             "filename": "z_deniku_kontrarevolucionare_010.md",
             "xhtml": "z_deniku_kontrarevolucionare_010.xhtml",
             "id": 9,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": false,
             "hungry": false,
@@ -342,6 +342,6 @@
       "user": "books-are-next",
       "repo": "kohout-z-deniku-kontrarevolucionare-aneb-zivoty-od-tanku-k-tanku"
     },
-    "generatedAt": 1655978870892
+    "generatedAt": 1657182076654
   }
 }

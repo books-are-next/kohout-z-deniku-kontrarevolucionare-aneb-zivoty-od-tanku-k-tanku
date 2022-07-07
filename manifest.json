@@ -8,8 +8,8 @@
   "edition": "beletrie",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "kohout-z-deniku-kontrarevolucionare-e43ee50",
-  "revision": "e43ee50",
+  "identifier": "kohout-z-deniku-kontrarevolucionare-468f548",
+  "revision": "468f548",
   "readingOrder": [
     "promo.html",
     "z_deniku_kontrarevolucionare_005.html",
@@ -17,11 +17,11 @@
     "z_deniku_kontrarevolucionare_007.html",
     "z_deniku_kontrarevolucionare_008.html",
     "z_deniku_kontrarevolucionare_009.html",
-    "colophon.html"
+    "about.html"
   ],
   "generatedAt": {
-    "date": "Thu Jun 23 2022 10:11:02 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1655979062367
+    "date": "Thu Jul 07 2022 08:31:38 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1657182698595
   },
   "documents": [
     {
@@ -147,7 +147,7 @@
       "role": "chapter",
       "order": 5,
       "prev": "z_deniku_kontrarevolucionare_008.html",
-      "next": "colophon.html",
+      "next": "about.html",
       "toc": [
         {
           "index": 0,
@@ -160,11 +160,11 @@
     },
     {
       "title": "Tiráž",
-      "file": "colophon.html",
+      "file": "about.html",
       "words": 140,
-      "chars": 922,
+      "chars": 921,
       "ideas": 16,
-      "role": "colophon",
+      "role": "about",
       "order": null,
       "prev": "z_deniku_kontrarevolucionare_009.html",
       "next": null,
@@ -182,7 +182,7 @@
   "totals": {
     "all": {
       "words": 88247,
-      "chars": 535864,
+      "chars": 535863,
       "ideas": 3320
     },
     "chapters": {
