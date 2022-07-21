@@ -8,8 +8,8 @@
   "edition": "beletrie",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "kohout-z-deniku-kontrarevolucionare-8b9281f",
-  "revision": "8b9281f",
+  "identifier": "kohout-z-deniku-kontrarevolucionare-1ae9e65",
+  "revision": "1ae9e65",
   "readingOrder": [
     "promo.html",
     "z_deniku_kontrarevolucionare_005.html",
@@ -20,8 +20,8 @@
     "about.html"
   ],
   "generatedAt": {
-    "date": "Thu Jul 07 2022 10:02:43 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1657188163467
+    "date": "Thu Jul 21 2022 14:38:51 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1658414331624
   },
   "documents": [
     {
@@ -162,7 +162,7 @@
       "title": "Tiráž",
       "file": "about.html",
       "words": 140,
-      "chars": 921,
+      "chars": 922,
       "ideas": 16,
       "role": "about",
       "order": null,
@@ -182,7 +182,7 @@
   "totals": {
     "all": {
       "words": 88247,
-      "chars": 535863,
+      "chars": 535864,
       "ideas": 3320
     },
     "chapters": {
