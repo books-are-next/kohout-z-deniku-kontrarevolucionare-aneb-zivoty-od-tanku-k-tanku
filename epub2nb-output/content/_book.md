@@ -13,6 +13,7 @@ meta:
   contentType: prose
   edition: beletrie
   publisherShort: mkp
+  isbn: 978-80-274-0557-2
 readingOrder:
   - promo.html
   - z_deniku_kontrarevolucionare_005.html
