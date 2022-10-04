@@ -8,8 +8,8 @@
   "edition": "beletrie",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "kohout-z-deniku-kontrarevolucionare-899da5b",
-  "revision": "899da5b",
+  "identifier": "kohout-z-deniku-kontrarevolucionare-3415de7",
+  "revision": "3415de7",
   "readingOrder": [
     "promo.html",
     "z_deniku_kontrarevolucionare_005.html",
@@ -20,8 +20,8 @@
     "about.html"
   ],
   "generatedAt": {
-    "date": "Sat Oct 01 2022 15:58:13 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1664639893722
+    "date": "Tue Oct 04 2022 16:45:56 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1664901956052
   },
   "documents": [
     {
